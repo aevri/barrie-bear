@@ -1,86 +1,32 @@
- 
+Book I - Island of Dreams
+=========================
 
- 
+Chapter I
+---------
 
- 
-
-   
-  
-  
-
-Q . .5 Va
-u s i. e ‘ a i
-a 0.. 8 n n .1 
-i 8.. Va A»  xx Va r
-m“ «a.  d V»  a S 3 2. n
-.m  R 2E «i S  .1 «X e
-E.  Xx  i  u «A 8 h, m g
-3, t a m. g 3 g i .  “x
- A: AM ya 1. S .1 E * Q Q 3
-ms  u e.  e   M Y... 
-.t «G «a ﬁ h  “v Hm  a  & t h
-44*. w W; ‘1 N. G Wu) Q.» R.
-o. 3 \ x w 3 r e 3 , .3.
-MN  (v s . (.2 2 K A; “J  «1
-NA .ww NW WK 3» Q» 3:” 45w E 3“ av «TV ‘va 
-  .i,  X .1 m; {A w.) «u   «x
-E a; i .<.& 3 ya mg (a 1: an.“ .Tv S h
-. m i 3 l w r 
-v... s. 1 8 ﬁ r.   a: R 8 :8 a.
-t N. e E u  R n” 0 a t w F
-i  a .   m e 0 .
- r f S a .3   “3 ch my, n H.
- m,   w mm a e G  
-an sm 1 3  ﬂ ,3 a.   mm t 
-o . t. i h. t  w» i
- mu 3 a. S E a m R i. . a l
-E A!“ a a {Q “A us... Q Wu. «3”  .1
-«x A c  «1 c i a  w  H“ u
-u s n  n  q» A“  a n
-‘ e a“ i. 0  r a a m f i 
-g    n a u  a   t 
-ﬁ. n i n  . Am F. mm  v. Q ma
-1 L e é a « a t k .‘u u a i
-k 5 v“ m d .8,  f a. Q 1. Q m 
-km at... ms“  3 .0»  Y‘s 
-.  mm mm 1 “A a , S  33‘ «a Q
-... 8 um i N  63”, S .5.» t m. an
-      A    a
-F. “u “u. r  an“ i i h." k h
-N; E Q mum um i  i Na, 3%, 
-m m mu 3 t a my 3 e n
-E Q (m  c «3 Au a ‘91 v.  ma
-. a a  S u E 
-.3 \;  x; r c. )3, \ :x i ﬁx.”
-Wu “1 .  ..\.o 1. x {a .9 . 9 v.8...
-my a: m .9 kw 8 mu 3 a 3 e. R
-F  4m,» c.» as F r
-u s  w x w  i n“. ( hm H.
-,3 “a. x w d w a .i, x  v
-Q wax A.”  w.” I w...“ a» 8n“ nu
-i  2w an: me u: a E  amp 3 5 .1
-  i x v . n  r S
-m (w e 0 F  Q «a i m a 
-ms. nu ax.» .i  0 8  .8 Ma
-3 Eu “9, Au”. ..  E. i i 1 o; e  C
-gnu a). a» cw ﬂ WA & am» ‘vxv LN» Q “Hi, 3 5
- i 3 S i  “u xx . 
-33. G a»  w? 3 mi 2w“ ‘0 kn ‘1 p we 0 A. in
-4“ Mn N 3" , u. \n. 3.. iw xx a e .km «a. 
-S. a» as  1 :z s. ,3 e t r  0
-t t i i r  .1 t t a
-x _ , u. y \ . .
-r x i. a a .i 8 .1 a i a
- r i.  a t  .8 3 v.  S m
- n»  a .  a r R c i  .3 r
- i t g n ‘3   a h a a  a
-.t S. 3. a, u d a; w. c  My 2 w m
-
- 
- 
-
- 
- 
+Bang, bang, bang went Barrie-Bear's stick on the solid oak stump of a tree
+which had been recently felled. Barrie-Bear was a portly character, covered
+from head to foot in pitch black soft fur with two round brown eyes sticking
+out like organ stops from hist almost-square head. He had an aristocratic air
+about him, and he felt very much in charge rather like a conductor of a large
+orchestra. "If you will all take your places and keep quiet", he said, "we will
+start the meeting". There was a lot of activity amoung the animals and a lot of
+whispering going on with considerable speculation as to the purpose of this get
+to-gether. Barrie-Bear cleared hist throat several times, and pulling himself
+up to his full height, (which was at most 3'6 1/2") started to speak. "We are
+here", he said, "to discuss our future, which at the present time, is I feel in
+some jeopardy". He was pleased with his opening sentence, and look round and
+seeing an attentive and seemingly interested audience, he felt unusually
+confident, and continued. "The countryside is slowly but surely being overrun
+by a man-made concrete jungle of roads, factories, houses and Bingo Halls.
+"We," he went on in serious tones, "are gradually being evicted from our own
+way of life, and if we continue as we are, we shall be forced out of our very
+existence. This situation cannot and will not be allowed to develop" - his
+voice trembled a little as he spoke - "I propose that we form a committee of
+interested folk to look into the possibility of finding ways to safeguard
+ourselves and our families". There was a general murmur of 'Hear, Head', and
+the meeting was then thrown open for general discussion. "Had the chairman any
+particular thoughts in
 
 mind regarding a possible solution?" asked Mr. Rabbit. "Yes, I
 have", answered Barrie—Bear, "but it will need careful planning and
