@@ -80,7 +80,7 @@ our own community and return to a way of life which would mean
 happiness for us all." How and where you do it will be up to the
 younger members amongst us to decide, and I will support you in
 everything you do," he said. Barrie-Bear felt a sense of great
-achievement after bk. Owl had finished, as he knew that, if Mr. Owl
+achievement after Mr. Owl had finished, as he knew that, if Mr. Owl
 supported his idea, then everyone else would do likewise. "You
 
 have heard Owl's proposal" said the Chairman, "would all those in
@@ -98,7 +98,7 @@ and as he did so, flicked him with his long tail. "Ow!" said Jason,
 you." What a nuisance, thought Jason, I do object to being woken so
 rudely on a summer's afternoon - I wonder what Barrie—Bear wants me
 for. He yawned, raised his head and rose lazily to his feet. "I
-donlt suppose," said Barrie—Bear, "that you have heard one word of
+don't suppose," said Barrie—Bear, "that you have heard one word of
 what has been going on", he said. "No" replied Jason, who for all
 his faults, always spoke the truth. Barrie wondered if it was worth
 repeating everything all over again, and decided quickly that it
@@ -116,7 +116,7 @@ thinking about how they were all going to manage if, as would seem
 likely, they were to be involved in a move.
 
 As it was a hot day and as she knew that she had done a lot of
-baking the previous day,she thought that it would be a nice idea to
+baking the previous day, she thought that it would be a nice idea to
 have a tea party. She had a quick word with Mr. Rabbit who agreed,
 and together they went over to Mr. & Mrs. Beaver and their three
 young sons Rush, Rory and Tear. "would you all like to come and have
@@ -134,13 +134,12 @@ doubt his tummy - and was seen to wander off, with his head held
 
 high and looking pleased with the afternoon's activities.
 
-GHAPTER II
-
-The Tea Party
+CHAPTER II - The Tea Party
+--------------------------
 
 Mr. & Mrs. Rabbit lived in.a charming little house, situated on
 the eng of the forest with a very pretty garden, which Mr. Rabbit
-was 6;;ﬁffind of. He grew only flowers, because he found that, when
+was particularly of. He grew only flowers, because he found that, when
 he decided to grow vegetables one year, they used to gradually dis-
 appear and that he was putting on considerably more weight. The
 House itself was quite small with just two rooms downstairs and two
@@ -153,15 +152,15 @@ her not-so-clean friends. Mr. Weasel, particularly, was a chimney
 sweep by trade and he seriously believed that washing youself too
 often brought bad luck. Everybody liked him, but he did not get too
 many invitations to other people's houses. Mr. Robin, too, was not
-igguiussy about wiping his feet when he came indoors and he had a
-habit of SCattering crumbs all over the place when eating his food.
+very fussy about wiping his feet when he came indoors and he had a
+habit of scattering crumbs all over the place when eating his food.
 He was extremely clever, and when he was not delivering the mail, he
 could always be found in his workshop inventing some new gadget or
-other. He was quite mechanically minded, andchdn't believe in having
+other. He was quite mechanically minded, and didn't believe in having
 some one in to do a job which he could do just as well if not better
 himself.
 
-01d hrs. Squirrell was in every sense, a lovely person. Poor
+Old Mrs. Squirrell was in every sense, a lovely person. Poor
 Bk. Squirrel had died several years ago during a particularly severe
 
 winter when food was in very short supply, and all he had in the last
@@ -172,15 +171,15 @@ children. She was very kind and took it upon herself to take on
 
 the job of nurse to all who needed her. She lived alone and was
 only too pleased to be asked to help if someone was ill. She was a
-very quiet person and unlike many of her friends, a Very good
+very quiet person and unlike many of her friends, a very good
 listener and spoke only when there was something worth saying.
 Consequently, she had learned much during her lifetime, and was able
 to put her knowledge to good use when the occasion demanded. Little
-did he know that her talents were soon to be put to good use.
+did she know that her talents were soon to be put to good use.
 
 Mr. & Mrs. Beaver and family were the first to arrive. They
 lived close to the river and as their name implies, they were very
-hard working. Mr. Beaver was an exCellent builder and most of the
+hard working. Mr. Beaver was an excellent builder and most of the
 homes of his friends and colleagues had been built by him. He was a
 very busy person and didn't normally have very much time to spare for
 social visits — but this one was different because he was only too
@@ -188,7 +187,7 @@ aware of the need for his services if a new community was to be
 formed. Mrs. Beaver was a busy little person too and with three
 growing youngsters to look after, her time was very valuable. Mr. &
 Mrs. Rabbit went out to welcome them at the gate, and suggested that
-they went to sit in the garden. Rush,,Rory and Tear asked if they
+they went to sit in the garden. Rush, Rory and Tear asked if they
 could go and play in the forest, and Mrs. Beaver said that they could
 as long as they were not too long. Mrs. Squirrel was next to come,
 closely followed by Mr. Weasel and Mr. Robin, who were often to be
@@ -199,30 +198,24 @@ join the rest of the party on the lawn.
 Mrs. Rabbit had laid a large tablecloth on the grass on which
 were cakes, sandwiches, fruit and jelly and in the centre was a large
 seed cake, which particularly took Mr. Robin's eye, as he was
-
 unusually fond of seed cake. Everyone was invited to help themselves,
-
 and while they were busy enjoying all the food, Mrs. Rabbit came out
 with iced lemon juice. Just as they were all beginning to feel rather
 full, Mrs. Beaver, who was starting to get anxious about the boys,
 said, "Somebody is coming through the forest". They all listened.
 Certainly, whoever it was, was in a hurry. They could hear the
 undergrowth snapping, and the dry sticks crackling under the weight
-of what Seemed to be an elephant. "Who on earth can it be?" said
-
+of what seemed to be an elephant. "Who on earth can it be?" said
 Mr. Rabbit, who had gone to the gate to get a closer view. "Why,
 it's Heigh", he said, as a heavy horse-like figure appeared through
 the trees. "You're in a hurry, Heigh, where are you going?" Heigh
 was panting and could hardly get his words out. "It's Rory", he
 said, "are Mr. & Mrs. Beaver with you?" "Yes," said Mr. Rabbit,
-
 "but what has happened?" "Well", said Heigh, "I was just out for a
 quick canter in the forest, when I thought I heard a cry for help.
-
 I stood quite still, which as you know I find very difficult, and
 there it was again - a faint cry of 'HELP'. I galloped off in the
 direction of the sound and soon met with Mr. Mole. He was pleased
-
 to see me, and told me that Rory had met with a bad accident, and
 thought he had broken his leg. He told me that you were having tea
 with Mrs. Rabbit - and asked me to come and tell you. I came as
@@ -230,12 +223,10 @@ quickly as I could" said Heigh. Although he was of course very sorry
 for little Rory, he nevertheless was delighted to be such an important
 messenger. "Oh my goodness", said Mr. Rabbit, who had now been
 joined by all the others. "We must go to him straight away", said
-Mrs. Beaver. "Waitl", said old Mrs. Squirrel, "there will be things
+Mrs. Beaver. "Wait!", said old Mrs. Squirrel, "there will be things
 we shall need. I think it would be sensible if Heigh would take
-
 Mr. & Mrs. Beaver to Rory so that you can be with him, and the rest
 of us can follow on with a stretcher, as we shall have to be careful
-
 in moving him," she said with an air of authority. Heigh was
 
 already waiting to go and called to the Beavers to jump on his back.
@@ -249,8 +240,7 @@ use as a stretcher and perhaps, Mr. Robin, you could go and find
 Barrie-Bear and tell him what has happened. He would be rather put
 out if he was not informed of such an important event. Mr. Robin
 flew off saying that he wouldn't be long, and Mr. Weasel hurried off
-to find the strdnher. "Now, Mrs. Rabbit, we had better go indoors
-
+to find the stretcher. "Now, Mrs. Rabbit, we had better go indoors
 to find some bandages and blankets". It did not take them long to
 find the things they required, and as they came out into the garden,
 they could see Mr. Robin and Barrie-Bear hurrying up the forest path.
