@@ -80,7 +80,7 @@ our own community and return to a way of life which would mean
 happiness for us all." How and where you do it will be up to the
 younger members amongst us to decide, and I will support you in
 everything you do," he said. Barrie-Bear felt a sense of great
-achievement after bk. Owl had finished, as he knew that, if Mr. Owl
+achievement after Mr. Owl had finished, as he knew that, if Mr. Owl
 supported his idea, then everyone else would do likewise. "You
 
 have heard Owl's proposal" said the Chairman, "would all those in
@@ -98,7 +98,7 @@ and as he did so, flicked him with his long tail. "Ow!" said Jason,
 you." What a nuisance, thought Jason, I do object to being woken so
 rudely on a summer's afternoon - I wonder what Barrie—Bear wants me
 for. He yawned, raised his head and rose lazily to his feet. "I
-donlt suppose," said Barrie—Bear, "that you have heard one word of
+don't suppose," said Barrie—Bear, "that you have heard one word of
 what has been going on", he said. "No" replied Jason, who for all
 his faults, always spoke the truth. Barrie wondered if it was worth
 repeating everything all over again, and decided quickly that it
@@ -116,7 +116,7 @@ thinking about how they were all going to manage if, as would seem
 likely, they were to be involved in a move.
 
 As it was a hot day and as she knew that she had done a lot of
-baking the previous day,she thought that it would be a nice idea to
+baking the previous day, she thought that it would be a nice idea to
 have a tea party. She had a quick word with Mr. Rabbit who agreed,
 and together they went over to Mr. & Mrs. Beaver and their three
 young sons Rush, Rory and Tear. "would you all like to come and have
@@ -134,13 +134,12 @@ doubt his tummy - and was seen to wander off, with his head held
 
 high and looking pleased with the afternoon's activities.
 
-GHAPTER II
+CHAPTER II - The Tea Party
+--------------------------
 
-The Tea Party
-
-Mr. & Mrs. Rabbit lived in.a charming little house, situated on
-the eng of the forest with a very pretty garden, which Mr. Rabbit
-was 6;;ﬁffind of. He grew only flowers, because he found that, when
+Mr. & Mrs. Rabbit lived in a charming little house, situated on
+the end of the forest with a very pretty garden, which Mr. Rabbit
+was particularly of. He grew only flowers, because he found that, when
 he decided to grow vegetables one year, they used to gradually dis-
 appear and that he was putting on considerably more weight. The
 House itself was quite small with just two rooms downstairs and two
@@ -153,16 +152,16 @@ her not-so-clean friends. Mr. Weasel, particularly, was a chimney
 sweep by trade and he seriously believed that washing youself too
 often brought bad luck. Everybody liked him, but he did not get too
 many invitations to other people's houses. Mr. Robin, too, was not
-igguiussy about wiping his feet when he came indoors and he had a
-habit of SCattering crumbs all over the place when eating his food.
+very fussy about wiping his feet when he came indoors and he had a
+habit of scattering crumbs all over the place when eating his food.
 He was extremely clever, and when he was not delivering the mail, he
 could always be found in his workshop inventing some new gadget or
-other. He was quite mechanically minded, andchdn't believe in having
+other. He was quite mechanically minded, and didn't believe in having
 some one in to do a job which he could do just as well if not better
 himself.
 
-01d hrs. Squirrell was in every sense, a lovely person. Poor
-Bk. Squirrel had died several years ago during a particularly severe
+Old Mrs. Squirrell was in every sense, a lovely person. Poor
+Mr. Squirrel had died several years ago during a particularly severe
 
 winter when food was in very short supply, and all he had in the last
 
@@ -172,15 +171,15 @@ children. She was very kind and took it upon herself to take on
 
 the job of nurse to all who needed her. She lived alone and was
 only too pleased to be asked to help if someone was ill. She was a
-very quiet person and unlike many of her friends, a Very good
+very quiet person and unlike many of her friends, a very good
 listener and spoke only when there was something worth saying.
 Consequently, she had learned much during her lifetime, and was able
 to put her knowledge to good use when the occasion demanded. Little
-did he know that her talents were soon to be put to good use.
+did she know that her talents were soon to be put to good use.
 
 Mr. & Mrs. Beaver and family were the first to arrive. They
 lived close to the river and as their name implies, they were very
-hard working. Mr. Beaver was an exCellent builder and most of the
+hard working. Mr. Beaver was an excellent builder and most of the
 homes of his friends and colleagues had been built by him. He was a
 very busy person and didn't normally have very much time to spare for
 social visits — but this one was different because he was only too
@@ -188,7 +187,7 @@ aware of the need for his services if a new community was to be
 formed. Mrs. Beaver was a busy little person too and with three
 growing youngsters to look after, her time was very valuable. Mr. &
 Mrs. Rabbit went out to welcome them at the gate, and suggested that
-they went to sit in the garden. Rush,,Rory and Tear asked if they
+they went to sit in the garden. Rush, Rory and Tear asked if they
 could go and play in the forest, and Mrs. Beaver said that they could
 as long as they were not too long. Mrs. Squirrel was next to come,
 closely followed by Mr. Weasel and Mr. Robin, who were often to be
@@ -199,30 +198,24 @@ join the rest of the party on the lawn.
 Mrs. Rabbit had laid a large tablecloth on the grass on which
 were cakes, sandwiches, fruit and jelly and in the centre was a large
 seed cake, which particularly took Mr. Robin's eye, as he was
-
 unusually fond of seed cake. Everyone was invited to help themselves,
-
 and while they were busy enjoying all the food, Mrs. Rabbit came out
 with iced lemon juice. Just as they were all beginning to feel rather
 full, Mrs. Beaver, who was starting to get anxious about the boys,
 said, "Somebody is coming through the forest". They all listened.
 Certainly, whoever it was, was in a hurry. They could hear the
 undergrowth snapping, and the dry sticks crackling under the weight
-of what Seemed to be an elephant. "Who on earth can it be?" said
-
+of what seemed to be an elephant. "Who on earth can it be?" said
 Mr. Rabbit, who had gone to the gate to get a closer view. "Why,
 it's Heigh", he said, as a heavy horse-like figure appeared through
 the trees. "You're in a hurry, Heigh, where are you going?" Heigh
 was panting and could hardly get his words out. "It's Rory", he
 said, "are Mr. & Mrs. Beaver with you?" "Yes," said Mr. Rabbit,
-
 "but what has happened?" "Well", said Heigh, "I was just out for a
 quick canter in the forest, when I thought I heard a cry for help.
-
 I stood quite still, which as you know I find very difficult, and
 there it was again - a faint cry of 'HELP'. I galloped off in the
 direction of the sound and soon met with Mr. Mole. He was pleased
-
 to see me, and told me that Rory had met with a bad accident, and
 thought he had broken his leg. He told me that you were having tea
 with Mrs. Rabbit - and asked me to come and tell you. I came as
@@ -230,12 +223,10 @@ quickly as I could" said Heigh. Although he was of course very sorry
 for little Rory, he nevertheless was delighted to be such an important
 messenger. "Oh my goodness", said Mr. Rabbit, who had now been
 joined by all the others. "We must go to him straight away", said
-Mrs. Beaver. "Waitl", said old Mrs. Squirrel, "there will be things
+Mrs. Beaver. "Wait!", said old Mrs. Squirrel, "there will be things
 we shall need. I think it would be sensible if Heigh would take
-
 Mr. & Mrs. Beaver to Rory so that you can be with him, and the rest
 of us can follow on with a stretcher, as we shall have to be careful
-
 in moving him," she said with an air of authority. Heigh was
 
 already waiting to go and called to the Beavers to jump on his back.
@@ -249,8 +240,7 @@ use as a stretcher and perhaps, Mr. Robin, you could go and find
 Barrie-Bear and tell him what has happened. He would be rather put
 out if he was not informed of such an important event. Mr. Robin
 flew off saying that he wouldn't be long, and Mr. Weasel hurried off
-to find the strdnher. "Now, Mrs. Rabbit, we had better go indoors
-
+to find the stretcher. "Now, Mrs. Rabbit, we had better go indoors
 to find some bandages and blankets". It did not take them long to
 find the things they required, and as they came out into the garden,
 they could see Mr. Robin and Barrie-Bear hurrying up the forest path.
@@ -296,13 +286,13 @@ toboggan. Barrie-Bear thought that was a first-class idea and wished
 he had thought of it himself. Mr. Weasel secured the bundle on to the
 make-shift stretcher and together they set off in pursuit of the
 others. They didn't have far to go for when they reached a small
-clearning in the trees, they found that Heigh had returned to lead
+clearing in the trees, they found that Heigh had returned to lead
 them to Rory. "A bit early or late for toboganning" said Heigh to
 
 Mr. Weasel when he saw the stretcher, "or is there some snow around
-which nob€§ had told me about?" "Of course not", replied Mr. Weasel,
-"Happy Christmas," "Happy Christmas?" said Heigh. "0h neVer mind" -
-Mr. Weasel was getting impatient and could see no point in pnionging
+which nobody has told me about?". "Of course not", replied Mr. Weasel,
+"Happy Christmas," "Happy Christmas?" said Heigh. "Oh never mind" -
+Mr. Weasel was getting impatient and could see no point in prolonging
 this stupid discussion. "How is Rory?" asked Mrs. Squirrel. "Well,"
 said Heigh, "I suppose you could say that he is as well as can be
 expected in the circumstances, he seems to be in quite some pain,
@@ -333,13 +323,13 @@ you could possibly need", butted in Barrie-Bear. "You?" Mrs.
 Squirrel looked surprised. "Most definitely" answered Barrie-Bear,
 "what else would I be humping round in that large bundle, which Mr.
 Weasel kindly offered to assist me with? Tell me if I've forgotten
-anything." Mrs. Owl and Mrs. Ihbbit unfastened the bundle and opened
+anything." Mrs. Owl and Mrs. Rabbit unfastened the bundle and opened
 it out on the ground. "Good heavens!" exclaimed Mrs. Rabbit, "I
-never realized that you knew about such things." -"Madam," replied
+never realized that you knew about such things." "Madam," replied
 Barrie-Bear, "one has to be prepared for any contingency." "Yes -
 well," said Mrs. Rabbit, who felt she was getting rather out of her
 depth, "I think we had better attend to the patient." Mrs. Owl had
-already helped herself to the blankets and a small pillow. Suzasked
+already helped herself to the blankets and a small pillow. She asked
 Mr. Weasel to bring the stretcher over to where Rory was lying, and
 when in position, she made up a little bed for him. Very gently,
 they lifted Rory on to it, and when he was comfortable, Mrs. Owl
@@ -348,7 +338,7 @@ when the three boys went off into the forest to play, they decided to
 do a bit of exploration. They had been in the forest several times
 before, but there was one part which they had heard a lot about but
 had never ventured into. The place is known locally as Oak Tree Glen
-and eVeryone says that only a fool or a brave man would eve; go
+and everyone says that only a fool or a brave man would ever go
 
 there. Consequently, it was always deserted, but as they thought
 
@@ -378,7 +368,7 @@ stealthily in their direction. Quite suddenly, it was all quiet
 again and the three boys thought that whatever it was hadn't
 realised they were there and had gone, but just as they were feeling
 more than a little relieved, it started again — a sort of rumbling
-noise, but what was very strange was that whatever it waslwas not
+noise, but what was very strange was that whatever it was, was not
 coming through the wood, not one stick or twig crackled - it really
 was a mystery, and soon that mystery would surely reveal itself as
 it was now very close. The boys were terrified and decided that they
@@ -412,7 +402,7 @@ in a cloud of dust, but having cleaned himself up a bit, he saw the
 beaver boys and realised that something was wrong. He hurried over
 and said, "Hello - I am Mole, it isn't often I ever see anyone when
 
-I burro w in Oak Tree Glen. What are you doing here?" Rush told
+I burrow in Oak Tree Glen. What are you doing here?" Rush told
 Mole what had happened, and when he said how frightened they had been,
 Mole laughed so much that Tear thought he would choke. He was a
 
@@ -426,7 +416,7 @@ move him - on the other hand, if they went to get help, the others
 15
 
 would then find out where they had been and that would mean getting
-told off or worse. After some consultation, they decided that'if
+told off or worse. After some consultation, they decided that if
 you break the rules then you expect to be punished, and because they
 were naturally worried about Rory, they asked Mole if he would help.
 "Of course I will" said Mole, "I can tunnel my way out of the wood
@@ -443,14 +433,14 @@ loud enough to attract his attention.
 
 16
 
-W
+CHAPTER IV
 The Journey that took them by Storm
 
 Rory was comfortably arranged on the stretcher and Mrs. Owl
 thought that it was probable that his leg was broken, and certainly
 he was badly bruised which meant that he had to be moved very gently
 and all bumps and jolts avoided at all costs. Barrie-Bear directed
-operations and thought that, as bk. Weasel had constructed the ‘
+operations and thought that, as Mr. Weasel had constructed the
 stretcher, it should be him that ought to pull it. Mr. Weasel thought
 that it was a great responsibility, but he would do it to the best
 of his ability - Barrie—Bear made sure that all his 'accoutrements'
@@ -483,7 +473,7 @@ others. They waited for Barrie-Bear to catch up and asked him if
 
 he could be a little bit quicker. "No," he said, "I can't - a bear
 cannot go too fast because his fur is so heavy and with all the
-responsibility I have to bear - hahJ hah! that's supposedto be a
+responsibility I have to bear - hah! hah! that's supposed to be a
 joke - oh well, never mind - I just cannot go as fast as you all can. "
 While they were all thinking that he was rather stupid though very
 lovable, the sky became very dark. Great black clouds were build-
@@ -493,7 +483,7 @@ case his fears were unfounded. He didn't have to, because quite
 suddenly heavy raindrops beguan to fall, and with them a frightening
 clap of thunder. Barrie—Bear said "Pardon," as he thought his tummy
 had rumbled, and then realising that it was thunder, said, "Have no
-fear ~ I always come prepared for such emergencies - if you would be
+fear - I always come prepared for such emergencies - if you would be
 so kind as to help me unload my accoutrements, you will see what I
 mean." Mr. Beaver and Mr. Weasel took the large pack off Heigh's
 back and placed it on the ground. Barrie-Bear went over and un-
@@ -512,7 +502,7 @@ which he was having a very pleasant cold shower - just the thing on
 
 18
 
-'a hot summer's day. The tent was, to say the least, very crowded,
+a hot summer's day. The tent was, to say the least, very crowded,
 but at least it was dry and all the occupants enjoyed a feeling of
 safety with some sort of waterproof cover over their heads. It
 rained and it rained and it rained. Inside the tent, it was getting
@@ -523,10 +513,10 @@ was preferable to be stuffy and warm than cold and very damp.
 Heigh, who relished the rain at first, gradually began to feel more
 than a little 'put-out' and it was just about the last straw when
 the tree under which he was sheltering was suddenly struck by light—
-ning - "Funny," he thought,"but I seem to remember being told not to
+ning - "Funny," he thought, "but I seem to remember being told not to
 shelter under a tree during a thunderstorm - ah well at least I am
 unharmed, and then realising what might have happened and how
-miraculously he had survived, he ga110ped off as fast as his legs
+miraculously he had survived, he galloped off as fast as his legs
 would go to a safer environment.
 
 The occupants of the tent were beginning to get impatient —
@@ -534,7 +524,7 @@ after an hour of continuous rain, there was no sign of it easing,
 and a small stream which ran close by to where they had pitched, was
 fast becoming a raging torrent. What should they do? There was a
 buzz of excitement within but nobody seemed to have any constructive
-ideas. Rory was the problem as he was unable to walk, and IRS.
+ideas. Rory was the problem as he was unable to walk, and Mrs.
 Beaver was beginning to get particularly anxious. Barrie—Bear had
 made himself a small spy-hole in the tent fabric, and he was able to
 see the water beginning to stand in ever-increasing puddles all over
@@ -543,10 +533,7 @@ flooded and he knew that someone had to take some quick action to avert
 disaster. Although he was rather slow in his physical movements, he
 had an alert brain and this was now racing to come up with some
 
-notion to help them.over their present predicament. Two ideas quickly
-
--
-
+notion to help them over their present predicament. Two ideas quickly
 19
 
 came to mind, the first was to seek the aid of the trees, but as
@@ -561,7 +548,7 @@ Mr. Weasel was most excited about it all - never before had he
 involved himself with floating objects and to think that on him
 depended the lives of himself and his friends, filled him with pride
 and a sense of responsibility he had never felt before. Mrs. Beaver,
-Mrs. Ihbbit and old Mrs. Owl did not, however, share in the general
+Mrs. Rabbit and old Mrs. Owl did not, however, share in the general
 enthusiasm which prevailed, and could only think of all the dreadful
 things which could but probably wouldn't happen. Mr. Robin, who had
 been unusually silent for a Very long time, suddenly bent his head
@@ -574,28 +561,26 @@ splashing sound of someone or something making their way through the
 water. Barrie-Bear put his eye to the spy hole and began to laugh -
 a sort of deep-throated chuckle which took everyone by surprise. He
 very seldom laughed - life was a serious business - but he just
-couldn't help himself. What he saw was a Very bedraggled Labrador
+couldn't help himself. What he saw was a very bedraggled Labrador
 
 in the shape of Jason slowly and laboriously plodding his way towards
 them through the floods. Jason couldn't bear to get wet, and now not
 only was he soaked through, he was absolutely filthy dirty as well.
 He couldn't have looked more miserable - his tail hung down and his
-eyes were just begging someone to help him. .Without thinking, Barrie-
+eyes were just begging someone to help him. Without thinking, Barrie-
 
 Bear shouted, "Jason - came over here, we're in the tent." Jason's
-
-r
 
 20
 
 face lit up and his tail wagged until it nearly dropped off. He
 pushed his way through the tent opening, stood for a few seconds,
-and shook. "Jason!" they all died,together. But it was too late.
+and shook. "Jason!" they all cried together. But it was too late.
 Water flew everywhere, and the smell of Jason's wet fur made the
 overall atmosphere almost unbearable. The rain was easing slightly
 but the water was still rising, so Barrie-Bear decided that the
 construction of a raft must still proceed before they became
-marooned. He asked Mr. WeaSel if he had worked out a plan for
+marooned. He asked Mr. Weasel if he had worked out a plan for
 building the raft, and Mr. Weasel replied that he had and that he would
 want the support of everyone except the Ladies if it were to be ready
 in time. He outlined his plan to Mr. Beaver, who after all, was
@@ -621,7 +606,7 @@ armed with scissors to cut the longest rushes they could find.
 
 21
 
-Meanwhile, Mr. Weasel, Mr. Rabbit, bk. Beaver and Mr. Robin made
+Meanwhile, Mr. Weasel, Mr. Rabbit, Mr. Beaver and Mr. Robin made
 their way towards the stack of logs and were able to roll them on
 the ground. Barrie-Bear decided that he would sit inside the tent
 and direct operations and of course, by this time, Jason had curled
@@ -649,7 +634,7 @@ Beaver if it would be possible to erect the tent on the raft, and
 Mr. Beaver thought it was a very good idea. With the aid of the
 bandages, they were able to tie the sides down to the timbers and
 position the tent poles into holes in the logs which they dug out
-with their knife. JUSt as they were admiring their handywork,
+with their knife. Just as they were admiring their handywork,
 
 there was a sudden lurch and almost at the same time, a big splash.
 
@@ -658,7 +643,7 @@ there was a sudden lurch and almost at the same time, a big splash.
 Someone had fallen overboard, and of course, it had to be Jason.
 
 He was furious — he had just dried out nicely and was looking forward
-to a peaceful sleep on the water, when his legs suddenly gaVe way,
+to a peaceful sleep on the water, when his legs suddenly gave way,
 and he was thrown over the side. Until he was actually out of his
 depth in the water, he hadn't realised quite how well he could swim,
 and far from scrambling back on board, he began to really enjoy him—
@@ -703,8 +688,8 @@ for the waters to recede, and after the sun had come out, the ground
 dried out remarkably quickly and so did they. Everyone was tired and
 poor Jason had collapsed as soon as he was ashore and was now in a
 deep sleep with a 'look what I've done' sort of a smile on his face.
-Barrie-Bear thought that they should all follow suit, and after a _
-few brief preparations, the entire p0pu1ation was soon in the land
+Barrie-Bear thought that they should all follow suit, and after a
+few brief preparations, the entire population was soon in the land
 
 of nod.
 
@@ -717,9 +702,9 @@ a scene of great excitement, and just as suddenly there was complete
 silence, and after a while a sad sound of deep sobbing. The awful
 truth had dawned. The little island which had been their saviour not
 many hours ago, was in fact only a stone's throw from the area around
-WhiCh were all their permanent homes. With the exception of old Mrs.
-Owl and Mr. Robin, whose houses were up in the‘mees, the remainder
-had been completely flooded. Saddly, they picked themselves up and
+Which were all their permanent homes. With the exception of old Mrs.
+Owl and Mr. Robin, whose houses were up in the trees, the remainder
+had been completely flooded. Sadly, they picked themselves up and
 
 resolutely made their way towards Mr. & Mrs. Beaver's home. It had
 
@@ -730,9 +715,9 @@ ramshackle dwelling, all that now remained were a few soggy reeds
 embedded in a morass of mud. Mr. & Mrs. Beaver were heartbroken
 
 and at once Mrs. Rabbit said that they must come and live with them
-until Mr. Beaver could build a new home. The dejected band. of
+until Mr. Beaver could build a new home. The dejected band of
 friends trudged on with heavy hearts on legs that would scarcely
-move. It was decided to make for Mrs. Rabbit's houSe first, as this
+move. It was decided to make for Mrs. Rabbit's house first, as this
 at least was on slightly rising ground. They found it without
 difficulty, and although the ﬂood water had been and gone, its out-
 ward appearance did not seem too bad. The garden was a shambles and
@@ -747,7 +732,7 @@ of his throat-clearing sessions. "Why, there you are" said Mrs.
 Water Rat, "where on earth have you all been? We have been terribly
 worried about you all." So much had happened since the meeting in
 the forest that they hardly knew where to start, but as briefly as
-he could, Barrie—Bear outlined the events of the past few hourse
+he could, Barrie—Bear outlined the events of the past few hours
 "How perfectly dreadful!" exclaimed Mrs. Water Rat, "what are we
 going to do?" Someone cleared his throat, and began, "It is
 essential that we all keep our heads and work out priorities" said
@@ -777,18 +762,18 @@ spreading them out in the sun he thought they would soon dry out.
 Barrie-Bear's residence as he always referred to it, was in everyone
 else's eyes little more than a tumble-down shack and nobody would
 have been too upset if that too had been washed away, but as it was
-pleasantly situated on rising ground it would probably haVe with-
+pleasantly situated on rising ground it would probably have with-
 stood the thunderstorm and it certainly would not have flooded. Sure
 enough when they arrived there nothing had really changed, it just
 looked rather pathetic. It had been reasonably well thatched before
-they left but the heavy rain and sudden gustsof wind had ripped much
+they left but the heavy rain and sudden gusts of wind had ripped much
 of it away and what was left was hanging limply on the somewhat
 flimsy network of roof members. The walls were made of mud and
 straw and being some eighteen inches thick were only slightly eroded
 where the rain water had gushed off the diminished roof. Barrie-
 Bear entered via a small oak doorway and went straight to a large
 chest which was secured by a heavy padlock, He reached for the key
-which he kept secretly hidden,unfastened the lock and lifted the lid.
+which he kept secretly hidden, unfastened the lock and lifted the lid.
 
 He made several grunts of approval and closed the chest and locked
 
@@ -801,7 +786,7 @@ close that information" he said "other than it contains some family
 heirlooms which are personal to me but not personal to anyone else."
 In fact what was so personal and valuable to Barrie-Bear was only a
 quantity of sentimental junk, a jar containing some of his mother's
-fur, a burst balloon which was thought to have belonged to Eeyonﬁ
+fur, a burst balloon which was thought to have belonged to Eeyore,
 
 an old donkey friend of his father, several empty honey jars and a
 few faded photographs which Christopher Robin had taken of him and
@@ -817,10 +802,10 @@ asked for just a minute to have some light refreshment. He had a
 few nuts and berries in the cupboard and hastily had a few mouthfuls
 of each just to keep him going. Only Mr. Weasel himself could get
 into his house, he disappeared down a small tunnel half-way up a
-bank and left Barrie—Bear, Mr. BeaVer and Mr. Robin standing at the
+bank and left Barrie—Bear, Mr. Beaver and Mr. Robin standing at the
 entrance. Mr. Robin thought that he might as well pop across the
-wood to reassure himself about his own propertyrand with a back in
-a minute gesturelhe flew off over the trees. Mr. Weasel found the
+wood to reassure himself about his own property and with a back in
+a minute gesture, he flew off over the trees. Mr. Weasel found the
 going rather more difficult than he thought it would be. In normal
 times the burrow in which he lived was on the dry side of damp but
 now his feet were becoming great lumps of clay as the earth stuck
@@ -842,7 +827,7 @@ state of his domain. "Good" said Barrie—Bear. "What do you mean
 good" asked Mr. Weasel, who was rather hurt by Barrie-Bear's rather
 terse remark. "My house is flooded and all you can say is 'good'."
 "Well - er — I didn't mean good-good" replied Barrie-Bear. "I meant
-good no serious damage has acourred," he said, "I didn't mean to
+good no serious damage has occurred," he said, "I didn't mean to
 imply that it was good that your den had been flooded." Against his
 better judgment he told Mr. Weasel that he could come and stay with
 him for a day or two until it had dried out, that is as long as you
@@ -851,12 +836,12 @@ getting rather low. "Well, if you are sure you don't mind" said Mr.
 Weasel, "I would be most grateful for some temporary shelter, thank
 you." There was a gentle fluttering overhead and Mr. Robin appeared
 feeling very chirpy and said that his little nest was just as he had
-left it and added he thought eVeryone should live in trees thus
+left it and added he thought everyone should live in trees thus
 escaping the horror of floods and the awful havoc they could create.
 "Suppose your tree was struck by lightning and fell down" said Barrie-
 Bear. Mr. Robin hadn't thought of that but said that it was most
 unlikely and that he was prepared to take that risk. "I think we
-should get back to Mrs. Rabbih" said Mr. Beaver, scenting that the
+should get back to Mrs. Rabbit" said Mr. Beaver, scenting that the
 atmosphere was becoming a trifle sticky. When they arrived they
 found that Rory had been put to bed with his leg in a splint and a
 lovely tea was waiting for them in front of a roaring log fire. Jason
@@ -874,23 +859,20 @@ told him that he thought that an extra—ordinary meeting should be
 held, if possible to-morrow, to discuss the present crisis and to
 formulate a plan of action in line with the proposal regarding the
 setting up of the new community. "Quite right Barrie-Bear" said
-Mr. Beaver, "the events of the past twentyfour hours have Certainly
+Mr. Beaver, "the events of the past twentyfour hours have certainly
 called for some immediate action. Where shall we meet?" "I would
 suggest that we use the same clearing in the forest that we used
 yesterday" said Barrie-Bear. "Good idea" said Mr. Beaver getting
 quite excited. "I will go and tell everybody to be there first
 thing in the morning" and off he went at a brisk pace to inform the
-others. harrie-Bear decided to return home as he had a great deal
+others. Barrie-Bear decided to return home as he had a great deal
 of thinking to do before the meeting the following day. He plodded
 off down the forest trail, his mind jumping from one thing to
 another, which made concentration difficult. It was a sort of
 snuffling noise that prompted him to stop and on looking round he
 saw Mr. Weasel coming after him at great speed. "Of course" he
 muttered to himself "I offered to put Weasel up for a few days. Oh
-
-CM
-
-bother, Ilthink so much better on my own. Ah well, one cannot be
+bother, I can think so much better on my own. Ah well, one cannot be
 unneighbourly and anyway he can be good company." "I thought that
 you had forgotten all about me" puffed Mr. Weasel with a tone of
 sadness in his voice. If he were truthful he had but he turned to
@@ -914,8 +896,8 @@ always works better in a warm, cosy atmosphere." "I will do that
 straight away" said Mr. Weasel. They went inside, and sure enough
 
 it was quite obvious that Barrie—Bear did little or no housework. His
-'residence‘ comprised just one room which was Sparsely furnished,
-although what there was looked comfortable. Inzaddition to his wooden
+'residence‘ comprised just one room which was sparsely furnished,
+although what there was looked comfortable. In addition to his wooden
 chest, he had a solid looking circular oak table, two well-worn easy
 chairs and an oval shaped bed which looked rather like a dog basket
 
@@ -938,7 +920,7 @@ lighting the fire. Barrie-Bear had a few logs left over from the
 
 winter and soon he was reclining in his favourite chair, his eyes
 
-3@
+30
 
 closed and his paws pressed together as though seeking divine
 inspiration. The fire burned brightly and Mr. Weasel enjoyed him—
@@ -973,13 +955,13 @@ of nuts and berries together with a jar of honey which Barrie-Bear
 
 31
 
-' consumed as though he had had nothing to eat for a week. "Could I
+consumed as though he had had nothing to eat for a week. "Could I
 go to bed now?" asked Mr. Weasel, who was feeling very weary. "Yes"
 said Barrie-Bear. "Will you be alright in that chair by the fire?"
 "I think I could sleep anywhere" replied Mr. Weasel who would have
 happily settled for a bed of nails. "Excellent" said Barrie-Bear,
 "we shall have to be up early in the morning, so I will wish you
-Good-night." "Goodnight" said mr. Weasel whose eyes were already
+Good-night." "Goodnight" said Mr. Weasel whose eyes were already
 half—closed. Barrie-Bear finished off his jar of honey, patted his
 tummy with a gesture of satisfaction and curled up in his bed feel-
 ing confident for the morrow. Mr. Weasel slept like a log until just
@@ -991,7 +973,7 @@ the well worn upholstery. At least the rude awakening had got him up
 rather earlier than anticipated, and before waking Barrie-Bear, he
 prepared some breakfast. He went over to Barrie-Bear's bed to find
 him on his back with legs and arms in the air and snoring very gently.
-It was a sham_e to wake him, but he poked him softly in the side which
+It was a shame to wake him, but he poked him softly in the side which
 prompted just a slight grunt. Mr. Weasel gave a harder poke and this
 time Barrie—Bear rolled over and rubbed his eyes. Gradually they
 opened and he murmured "What on earth are you doing here Mr. Weasel?"
@@ -1004,7 +986,7 @@ exclaimed Barrie-Bear. "Thank you Mr. Weasel - you must come and
 
 stay more often." They took their time and when another honey jar
 
-had been licked clearn, they set off for the meeting.
+had been licked clear, they set off for the meeting.
 
 When they arrived at the forest clearing, Mr. Beaver was the
 only one there. However, it was early yet and no doubt the others
@@ -1012,7 +994,6 @@ would be along shortly. "Good morning" said Mr. Beaver, "what a
 lovely day." "Good morning" answered Barrie-Bear and Mr. Weasel in
 unison and "Yes, it is," continued Barrie-Bear. "How is young Rory?"
 
-II
 "He didn't have a very good night" said Mr. Beaver, and Mrs. Beaver
 and Mrs. Squirrel will be staying with him this morning. Mr. &
 Mrs. Rabbit should be here soon though," he went on. As he spoke,
@@ -1021,9 +1002,9 @@ and that he understood that Mr. & Mrs. Mouse and old Mr. & Mrs. Owl
 were also coming. "Excellent" said Barrie-Bear, "it sounds as
 though we shall be well represented."
 
-Within half an hour, all who were expected had arrived, and i
-Barrie-Bear brought the meeting to order and began to speak. "I §
-have called you together this morning" he commenced, "because the%
+Within half an hour, all who were expected had arrived, and
+Barrie-Bear brought the meeting to order and began to speak. "I
+have called you together this morning" he commenced, "because the
 events of the past twentyfour hours have brought matters to some-
 thing of a head. The sudden storms and floods yesterday afternoon
 have totally destroyed some of our homes and badly damaged others,
@@ -1046,7 +1027,7 @@ down on the coast," he said, “we could carry out a survey."”
 "I could carry it on my back" said Heigh, "or better still, perhaps
 we could borrow a trap, and then we could have a good day out at the
 seaside." Jason asked if he could go, and of course Jimmy and Timmy
-wanted to as well. No doubt the same could be said hr the Beaver
+wanted to as well. No doubt the same could be said for the Beaver
 boys except poor Rory. Barrie-Bear was kind but firm. "I think,"
 he said as nicely as he could, "that if Heigh would be good enough
 to take us, we had better restrict the numbers on this trip and I
@@ -1054,8 +1035,7 @@ would suggest that, Mr. Beaver, Mr. Weasel and myself go, if
 possible, to-morrow, to see if we can find a suitable place to move
 to. If we are successful, then everybody will be needed to make the
 necessary preparations." His suggestion met with everyone's approval
-and Hsigh.was asked to find a trap and report.3ith it at Barrie?
-
+and Heigh was asked to find a trap and report with it at Barrie-
 Bear's house to-morrow morning at eight o'clock.
 
 34
@@ -1063,8 +1043,6 @@ Bear's house to-morrow morning at eight o'clock.
 CHAPTER XI
 
 In Search of a Dream
-
- 
 
 Promptly at eight o'clock the next morning Heigh pulled up
 outside Barrie—Bear's house with full harness on and pulling a
@@ -1078,7 +1056,7 @@ had taken the trouble to prepare a few snacks for the journey.
 of our piece of transportation?" "Excellent" replied Barrie—Bear,
 "you have done very well Heigh, where on earth did you find the
 trap?" "It belongs to a farmer who lives quite close to my stable,
-and I just happened to mentitnn that I was looking for one to go to
+and I just happened to mention that I was looking for one to go to
 the coast with to—morrow and he said that I could borrow his. He
 hasn't used it for years, but he got it out, cleaned and oiled it
 and also lent me the harness. I have never pulled a trap before,
@@ -1092,13 +1070,13 @@ at such a speed that Barrie-Bear and Mr. Weasel almost fell off.
 It took them a little while for them to get their 'sea legs' but by
 the time they arrived at Mrs. Rabbit's house, they were feeling
 considerably more confident. Mr. Beaver was all ready waiting and
-with a quick Hello and Good-bye' to the Rabbits, Heigh was off
+with a quick 'Hello and Good-bye' to the Rabbits, Heigh was off
 
 again and this time heading for the coast. After about two miles,
 
 35
 
-— Heigh settled down to a gentle trot and it was a lovely feeling
+Heigh settled down to a gentle trot and it was a lovely feeling
 jogging through the lovely countryside with the sun on their backs
 and a warm, though refreshing breeze, in their faces. Although
 Barrie-Bear had a hold on the reins, he had no idea how to use them,
@@ -1107,9 +1085,9 @@ had gone about half the way, Barrie-Bear asked Heigh to stop. "We
 will have some refreshments now," he said, and lifting the basket
 which Mr. Weasel had prepared, he stepped down, closely followed by
 Mr. Beaver and Mr. Weasel. Mrs. Rabbit had kindly prepared some
-provisions and they sat down on the grass with a geod supply of cake,
+provisions and they sat down on the grass with a good supply of cake,
 honey and fruit. Heigh had also taken the precaution of bringing
-along a bag of cats and bran which he much appreciated. He was so
+along a bag of oats and bran which he much appreciated. He was so
 hungry that he could have eaten the lot, but thought he had better
 leave some for the journey home. After about half an hour's rest,
 they were off again and making good progress towards the see. As he
@@ -1117,15 +1095,15 @@ came round a sharp corner at the top of a steep hill, Heigh suddenly
 gave a shout and set off down the other side with sudden enthusiasm.
 The others, who were feeling somewhat sleepy after their meal, were
 startled by the dramatic change of speed and wondered what was making
-Heigh go so fast. They only had to look in front of them.to realise
+Heigh go so fast. They only had to look in front of them to realise
 what had happened. In the distance, beyond the fields and little
 villages, they were able to catch a glimpse of the sea. There was no
 holding Heigh now, he knew they were nearly there, and he was deter-
 mined to finish the journey in record time.
 
 It was exactly 11 o'clock when Heigh pulled up near the edge of
-‘some cliffs and they were able to stretch their legs. Mr. Weasel
-and Mr. Beaver unfastened the trap and relryed Heigh of his harness
+some cliffs and they were able to stretch their legs. Mr. Weasel
+and Mr. Beaver unfastened the trap and relieved Heigh of his harness
 while Barrie-Bear started to set up his telescope. Although it was
 
 turning into a really hot summer's day, the visibility was not as
@@ -1134,8 +1112,8 @@ turning into a really hot summer's day, the visibility was not as
 
 good as they had hoped, but undaunted, they set about surveying the
 scene. Below them was a gently sloping sandy beach and the Sea,
-which was as calm as a mill pond, was lapping the shore ghythmically
-and ge nt 1y 0
+which was as calm as a mill pond, was lapping the shore rhythmically
+and gently.
 
 They could not have found a better position from which to spy
 out the landscape. With the naked eye, only miles and miles of sea
@@ -1146,7 +1124,7 @@ was quite obviously some distance away. He began to get quite
 excited and the others kept saying, "What is it, Barrie-Bear - what
 can you see?" "Wait a minute," said Barrie-Bear, "I cannot quite get
 whatever it is into focus and the telescope won't keep still." "Oh
-bother, I've lost it - no — wait - there it is — What on earEh?"
+bother, I've lost it - no — wait - there it is — What on earth?"
 "Do tell us what it is" said Mr. Weasel who was jumping up and down
 with excitement. "I just don't know" muttered Barrie—Bear, "it's a
 long black shape which appears to be moving very slowly. See what
@@ -1186,7 +1164,7 @@ must be someone around whom we could ask. Heigh, you will have to
 stay here and guard the telescope, while we go and make enquiries."
 Poor Heigh, he realised that he was too big to go to sea in one of
 those little dinghys, and with a sad expression on his face, he
-could do nothing but reluctantly ﬁh’agree.
+could do nothing but reluctantly agree.
 
 The others made their way down the cliff face via a steep and
 very rough track. When they arrived on the beach, they went
@@ -1202,7 +1180,7 @@ borrowed one for an hour or two. "Would I mind?" he asked himself,
 
 imagining that he was the owner of the boats. "I don't think so", he
 thought as long as the person who borrowed it returned it undamaged,
-eSpecially if there was a good reason for borrowing it. He turned
+especially if there was a good reason for borrowing it. He turned
 
 it over in his mind for quite some time and after a lengthy private
 conversation with himself, he decided that they would take one of the
@@ -1221,9 +1199,9 @@ water and had to scramble into the boat before they were out of their‘
 depth. None of them knew very much about boats but at least they had
 had the experience of the raft during the floods, and they soon
 rigged up the sail and were making good progress. The sea was still
-very clam, but as they got further from the shore, they could feel
+very calm, but as they got further from the shore, they could feel
 the breeze stiffening a little, and the sail which had been flapping,
-was now billowing out like the chest of a puffed-hp Robin. The little
+was now billowing out like the chest of a puffed-up Robin. The little
 boat bobbed up and down with the movement of the waves, and the three
 explorers were beginning to find out that being at sea was rather
 different to floating on a flood. The beach now seemed a long way
@@ -1238,7 +1216,7 @@ worried and wondered whether they should turn back, but quickly
 39
 
 decided against it, as they were unlikely to have another such
-perfect day for amateur boating. Soon thgrrounded the headland
+perfect day for amateur boating. Soon they rounded the headland
 which they had seen through the telescope, and with a final wave to
 Heigh, they concentrated on getting to the island as quickly as
 possible. After a further half an hour they were able to see it
@@ -1250,7 +1228,7 @@ attractive crescent-shaped beach which was so lovely that they could
 almost see the letters spelling out 'Welcome' in the sun-bleached
 sand. Closer and closer they sailed and were able to see the
 
-island quite c$early. The odd thing was that no-one nor any sign
+island quite clearly. The odd thing was that no-one nor any sign
 
 of life was visible. The only sound they could hear was the gentle
 flapping of the sail and the peaceful rhythmic lapping of the sea.
@@ -1263,7 +1241,7 @@ boat on to the sand and secured it to a tree stump with a rope which
 they found in the bows. Having ensured that it was safely anchored,
 they climbed the short distance to a ridge at the top of the beach
 and stopped to get their bearings and decide how best to survey the
-island. They did not haVe a lot of time to spare, and Barrie-Bear
+island. They did not have a lot of time to spare, and Barrie-Bear
 decided that they would split up, and each go in different directions,
 and meet again in an hour's time. Mr. Weasel would take the western
 half, Mr. Beaver the eastern and Barrie-Bear would venture north-
@@ -1272,8 +1250,8 @@ wards. Mr. Weasel and Mr. Beaver decided to follow the ridge around
 the coast as far as possible so that, as long as they kept the sea in
 
 they would be able to find their way back alright. Barrie-
-"’//////,//,ar/§aid that he would mark the trees on his route for the same
-V purpose. With a brief "Goodbye - see you later", they started off
+Bear said that he would mark the trees on his route for the same
+purpose. With a brief "Goodbye - see you later", they started off
 on their various routes wondering who and what they might see.
 Barrie-Bear was also interested in finding out the 'berry' situation
 on the island as he was feeling decidedly peckish. Any feelings of
@@ -1294,7 +1272,7 @@ sure they are edible," he continued. "I certainly cast my vote in
 favour of emigrating here." They were unanimous, and with no
 further ado, returned to the boat, which was now floating on the
 incoming tide. They scrambled aboard and cast off the rope from the
-tree stump. The wind had risen a little sincc they arrived, and it
+tree stump. The wind had risen a little since they arrived, and it
 was with difficulty and indifferent seamanship, that they made their
 way back to the mainland. The sea was quite choppy and although he
 wouldn't admit it, Barrie-Bear felt quite sea-sick. Mr. Beaver who
@@ -1330,7 +1308,7 @@ behind. But now we must set off for home before it gets dark."
 "Alright" said Heigh, now back to his old cheerful self. "We shall
 go like the wind." He wasn't joking - he galloped nearly all the
 
-way, not even stoPping for half-way refreshments.
+way, not even stopping for half-way refreshments.
 
 - - -
 
