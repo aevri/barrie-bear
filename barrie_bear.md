@@ -262,8 +262,6 @@ Bear a glass of iced lemon for which he was grateful, and while he
 
 was drinking it, Mr. Weasel appeared pulling a small toboggan behind
 
-16
-
 him. "Not a very suitable time of year for Winter sports" muttered
 Barrie—Bear unaware of Mr. Weasel's inventiveness. Mr. Weasel
 
@@ -306,10 +304,6 @@ However, the journey was not too long and soon they were reunited
 
 with Mr. & Mrs. Beaver, Rush, Rory and Tear.
 
-11
-
-12
-
 CHAPTER III
 Happenings at Oak Tree Glen
 
@@ -342,8 +336,6 @@ and everyone says that only a fool or a brave man would ever go
 
 there. Consequently, it was always deserted, but as they thought
 
-13
-
 there was safety in numbers Rush, Rory and Tear decided to ignore all
 previous warnings and explore forbidden territory. It was a very
 dark area of the wood, and in places they had to bend almost double
@@ -374,8 +366,6 @@ was a mystery, and soon that mystery would surely reveal itself as
 it was now very close. The boys were terrified and decided that they
 
 would be safer in the trees than down on the ground. Together they
-
-l4
 
 clambered up the branches of one of the trees which ringed the glen,
 and having made themselves as comfortable as they could, they sat
@@ -413,8 +403,6 @@ how badly he was hurt, but they realised that they had better not
 
 move him - on the other hand, if they went to get help, the others
 
-15
-
 would then find out where they had been and that would mean getting
 told off or worse. After some consultation, they decided that if
 you break the rules then you expect to be punished, and because they
@@ -430,8 +418,6 @@ on his afternoon ramble. As soon as it was safe to surface, he
 poked his head up through the pine needles and was able to squeak
 
 loud enough to attract his attention.
-
-16
 
 CHAPTER IV
 The Journey that took them by Storm
@@ -466,8 +452,6 @@ went well for about half an hour or so, and then Barrie-Bear who was
 
 already some way behind the others, shouted for everyone to stop.
 
-17
-
 Heigh came to an abrupt halt, and so did Mr. Weasel and all the
 others. They waited for Barrie-Bear to catch up and asked him if
 
@@ -499,8 +483,6 @@ much, Barrie—Bear asked him to keep watch and let them know how the
 storm was progressing. Heigh felt very important indeed — besides
 
 which he was having a very pleasant cold shower - just the thing on
-
-18
 
 a hot summer's day. The tent was, to say the least, very crowded,
 but at least it was dry and all the occupants enjoyed a feeling of
@@ -534,8 +516,6 @@ disaster. Although he was rather slow in his physical movements, he
 had an alert brain and this was now racing to come up with some
 
 notion to help them over their present predicament. Two ideas quickly
-19
-
 came to mind, the first was to seek the aid of the trees, but as
 quickly as it came, he dismissed the idea - whoever could imagine
 old Mrs. Owl, let alone Rory on a stretcher, climbing and sitting
@@ -571,8 +551,6 @@ eyes were just begging someone to help him. Without thinking, Barrie-
 
 Bear shouted, "Jason - came over here, we're in the tent." Jason's
 
-20
-
 face lit up and his tail wagged until it nearly dropped off. He
 pushed his way through the tent opening, stood for a few seconds,
 and shook. "Jason!" they all cried together. But it was too late.
@@ -603,8 +581,6 @@ still rising dangerously. They had no time to spare, and everyone
 had to help. Mrs. Rabbit, Mrs. Beaver and Rush and Tear went off,
 
 armed with scissors to cut the longest rushes they could find.
-
-21
 
 Meanwhile, Mr. Weasel, Mr. Rabbit, Mr. Beaver and Mr. Robin made
 their way towards the stack of logs and were able to roll them on
@@ -637,8 +613,6 @@ position the tent poles into holes in the logs which they dug out
 with their knife. Just as they were admiring their handywork,
 
 there was a sudden lurch and almost at the same time, a big splash.
-
-22
 
 Someone had fallen overboard, and of course, it had to be Jason.
 
@@ -673,8 +647,6 @@ of a hillock which was protruding out of the flood. He could see
 
 Jason clearly and shouted to him to swim over to his little island.
 
-23
-
 Jason took on a new lease of life and swam for all he was worth. It
 was further than he had thought, but in half an hour, he was there.
 Heigh was able to paddle through the water and hold the raft steady
@@ -708,8 +680,6 @@ had been completely flooded. Sadly, they picked themselves up and
 
 resolutely made their way towards Mr. & Mrs. Beaver's home. It had
 
-24
-
 completely disappeared without trace. At one time, a cosy little
 ramshackle dwelling, all that now remained were a few soggy reeds
 embedded in a morass of mud. Mr. & Mrs. Beaver were heartbroken
@@ -741,8 +711,6 @@ an ill wind that blows nobody any good and perhaps we can turn our
 sorrow into new hope for the future." "Immediately, however, we
 
 need to see to young Rory first, and then ensure that everyone is
-
-25
 
 properly and comfortably housed. I would suggest that Mrs. Owl,
 Mrs. Rabbit, Mrs. Beaver and Mrs. Water Rat remain here to finish
@@ -776,8 +744,6 @@ chest which was secured by a heavy padlock, He reached for the key
 which he kept secretly hidden, unfastened the lock and lifted the lid.
 
 He made several grunts of approval and closed the chest and locked
-
-26
 
 it again. "What do you keep in that box of yours that is so secret?"
 asked Mr. Beaver. Everyone knew about Barrie's box but nobody knew
@@ -814,8 +780,6 @@ to them like glue. The water must have at one time covered the
 
 entrance hole and seeped down into the burrow. As he went deeper
 
-27.
-
 the earth got wetter and quite suddenly he found he was actually in
 water with his front feet. His little den was flooded and there was
 nothing he could do other than extricate himself and to wait for it
@@ -848,8 +812,6 @@ lovely tea was waiting for them in front of a roaring log fire. Jason
 
 was still fast asleep, no doubt dreaming of his daring rescue operation.
 
-28
-
 CHAPTER V
 In Search of a Dream
 
@@ -881,8 +843,6 @@ going on ahead to put the place in order" replied Barrie—Bear. His
 conscience was pricking him all over, but he soon came to the
 
 conclusion that a "White Lie" was preferable to hurting Mr. Weasel's
-
-29
 
 feelings. They covered the remaining part of the journey together,
 and on the way Barrie—Bear explained about the meeting the next day.
@@ -920,8 +880,6 @@ lighting the fire. Barrie-Bear had a few logs left over from the
 
 winter and soon he was reclining in his favourite chair, his eyes
 
-30
-
 closed and his paws pressed together as though seeking divine
 inspiration. The fire burned brightly and Mr. Weasel enjoyed him—
 self dusting and cleaning. Then he spied it, under a stone which he
@@ -952,8 +910,6 @@ to the cupboard to fetch some refreshments. Mr. Weasel was still
 full of Mrs. Rabbit's tea, but he roused himself and fetched a bowl
 
 of nuts and berries together with a jar of honey which Barrie-Bear
-
-31
 
 consumed as though he had had nothing to eat for a week. "Could I
 go to bed now?" asked Mr. Weasel, who was feeling very weary. "Yes"
@@ -1020,8 +976,6 @@ who was now feeling quite excited about the next part of his speech.
 
 used to belong to my Grandfather, and if we could somehow set it up
 
-33
-
 down on the coast," he said, “we could carry out a survey."”
 
 "I could carry it on my back" said Heigh, "or better still, perhaps
@@ -1037,8 +991,6 @@ to. If we are successful, then everybody will be needed to make the
 necessary preparations." His suggestion met with everyone's approval
 and Heigh was asked to find a trap and report with it at Barrie-
 Bear's house to-morrow morning at eight o'clock.
-
-34
 
 CHAPTER XI
 
@@ -1074,8 +1026,6 @@ with a quick 'Hello and Good-bye' to the Rabbits, Heigh was off
 
 again and this time heading for the coast. After about two miles,
 
-35
-
 Heigh settled down to a gentle trot and it was a lovely feeling
 jogging through the lovely countryside with the sun on their backs
 and a warm, though refreshing breeze, in their faces. Although
@@ -1107,8 +1057,6 @@ and Mr. Beaver unfastened the trap and relieved Heigh of his harness
 while Barrie-Bear started to set up his telescope. Although it was
 
 turning into a really hot summer's day, the visibility was not as
-
-36
 
 good as they had hoped, but undaunted, they set about surveying the
 scene. Below them was a gently sloping sandy beach and the Sea,
@@ -1142,8 +1090,6 @@ trout," Heigh declared. Mr. Weasel thought his remark very funny
 
 and shook with laughter. "Don't be so stupid" said Barrie-Bear who
 
-37
-
 thought the joke in rather bad taste, considering the seriousness
 of their mission. "Never mind all that," exclaimed Mr. Beaver, "I
 think I have found something rather more interesting." The mist had
@@ -1175,8 +1121,6 @@ no-one in sight and Barrie-Bear, who was anxious to set sail,
 wondered to himself if the owner would mind very much if they
 
 borrowed one for an hour or two. "Would I mind?" he asked himself,
-
-38
 
 imagining that he was the owner of the boats. "I don't think so", he
 thought as long as the person who borrowed it returned it undamaged,
@@ -1212,8 +1156,6 @@ further out to sea than any of them had imagined and after an hour's
 sailing, it still seemed a long way to go. Barrie-Bear was a little
 
 worried and wondered whether they should turn back, but quickly
-
-39
 
 decided against it, as they were unlikely to have another such
 perfect day for amateur boating. Soon they rounded the headland
@@ -1279,8 +1221,6 @@ wouldn't admit it, Barrie-Bear felt quite sea-sick. Mr. Beaver who
 knew rather more about sailing than Barrie-Bear, could see that he
 
 - had a touch of mal—de-mer, and suggested that he took over the tiller
-
-41
 
 while Barrie-Bear had a rest. "That would be kind" said Barrie-Bear,
 who was somewhat relieved to hand over to a more experienced sailor.
