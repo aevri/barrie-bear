@@ -488,10 +488,10 @@ his head over to one side and then the other. He had heard something and said,
 of someone or something making their way through the water. Barrie-Bear put his
 eye to the spy hole and began to laugh - a sort of deep-throated chuckle which
 took everyone by surprise. He very seldom laughed - life was a serious business
-- but he just couldn't help himself. What he saw was a very bedraggled Labrador
-in the shape of Jason slowly and laboriously plodding his way towards them
-through the floods. Jason couldn't bear to get wet, and now not only was he
-soaked through, he was absolutely filthy dirty as well.  He couldn't have
+-- but he just couldn't help himself. What he saw was a very bedraggled
+Labrador in the shape of Jason slowly and laboriously plodding his way towards
+them through the floods. Jason couldn't bear to get wet, and now not only was
+he soaked through, he was absolutely filthy dirty as well.  He couldn't have
 looked more miserable - his tail hung down and his eyes were just begging
 someone to help him.
 
