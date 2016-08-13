@@ -134,7 +134,7 @@ doubt his tummy - and was seen to wander off, with his head held
 
 high and looking pleased with the afternoon's activities.
 
-CHAPTER II - The Tea Party
+Chapter II - The Tea Party
 --------------------------
 
 Mr. & Mrs. Rabbit lived in a charming little house, situated on
@@ -304,8 +304,8 @@ However, the journey was not too long and soon they were reunited
 
 with Mr. & Mrs. Beaver, Rush, Rory and Tear.
 
-CHAPTER III
-Happenings at Oak Tree Glen
+Chapter III - Happenings at Oak Tree Glen
+-----------------------------------------
 
 "Thank goodness you've arrived", said Mrs. Beaver, who was
 sitting on the ground with Rory‘s head lying comfortably in her
@@ -419,8 +419,8 @@ poked his head up through the pine needles and was able to squeak
 
 loud enough to attract his attention.
 
-CHAPTER IV
-The Journey that took them by Storm
+Chapter IV - The Journey that took them by Storm
+------------------------------------------------
 
 Rory was comfortably arranged on the stretcher and Mrs. Owl
 thought that it was probable that his leg was broken, and certainly
@@ -812,8 +812,8 @@ lovely tea was waiting for them in front of a roaring log fire. Jason
 
 was still fast asleep, no doubt dreaming of his daring rescue operation.
 
-CHAPTER V
-In Search of a Dream
+Chapter V - In Search of a Dream
+--------------------------------
 
 After an excellent tea and with a feeling of being rather more
 full than was good for him, Barrie-Bear took Mr. Beaver aside and
@@ -992,9 +992,8 @@ necessary preparations." His suggestion met with everyone's approval
 and Heigh was asked to find a trap and report with it at Barrie-
 Bear's house to-morrow morning at eight o'clock.
 
-CHAPTER XI
-
-In Search of a Dream
+Chapter XI - In Search of a Dream
+---------------------------------
 
 Promptly at eight o'clock the next morning Heigh pulled up
 outside Barrie—Bear's house with full harness on and pulling a
