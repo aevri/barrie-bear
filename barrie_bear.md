@@ -24,7 +24,7 @@ way of life, and if we continue as we are, we shall be forced out of our very
 existence. This situation cannot and will not be allowed to develop" - his
 voice trembled a little as he spoke - "I propose that we form a committee of
 interested folk to look into the possibility of finding ways to safeguard
-ourselves and our families". There was a general murmur of 'Hear, Head', and
+ourselves and our families". There was a general murmur of 'Hear, Hear', and
 the meeting was then thrown open for general discussion. "Had the chairman any
 particular thoughts in
 
