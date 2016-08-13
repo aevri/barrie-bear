@@ -785,8 +785,8 @@ inspiration.
 
 The fire burned brightly and Mr. Weasel enjoyed himself dusting and cleaning.
 Then he spied it, under a stone which he had inadvertently moved with his foot
-- the key to Barrie-Bear's chest. Surely he wouldn't mind if he had a quick
-  peep. He looked across to Barrie-Bear who was sitting quite motionless, and
+-- the key to Barrie-Bear's chest. Surely he wouldn't mind if he had a quick
+peep. He looked across to Barrie-Bear who was sitting quite motionless, and
 thought that he was asleep. He coughed quietly but not even his ears twitched,
 Should he or shouldn't he? He knew of course, that he shouldn't but on the
 other hand, he would not be committing a crime or doing harm to anyone, so he
@@ -947,7 +947,7 @@ a large black object which was quite obviously some distance away. He began to
 get quite excited and the others kept saying, "What is it, Barrie-Bear - what
 can you see?" "Wait a minute," said Barrie-Bear, "I cannot quite get whatever
 it is into focus and the telescope won't keep still." "Oh bother, I've lost it
-- no — wait - there it is — What on earth?" "Do tell us what it is" said Mr.
+-- no — wait - there it is — What on earth?" "Do tell us what it is" said Mr.
 Weasel who was jumping up and down with excitement. "I just don't know"
 muttered Barrie—Bear, "it's a long black shape which appears to be moving very
 slowly. See what you make of it Mr. Beaver." Mr. Beaver put his eye to the lens
