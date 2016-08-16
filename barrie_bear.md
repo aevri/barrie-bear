@@ -1,129 +1,130 @@
-Book I - Island of Dreams
+Book I – Island of Dreams
 =========================
 
 Chapter I
 ---------
 
-Bang, bang, bang went Barrie-Bear's stick on the solid oak stump of a tree
-which had been recently felled. Barrie-Bear was a portly character, covered
-from head to foot in pitch black soft fur with two round brown eyes sticking
-out like organ stops from hist almost-square head. He had an aristocratic air
-about him, and he felt very much in charge rather like a conductor of a large
+Bang, bang, bang went Barrie-Bear's stick on the solid stump of an oak tree
+that had been recently felled. Barrie-Bear was a portly character, covered from
+head to foot in soft pitch-black fur with two round brown eyes sticking out
+like organ stops from his almost-square head. He had an aristocratic air about
+him, and he felt very much in charge, rather like a conductor of a large
 orchestra.
 
-"If you will all take your places and keep quiet", he said, "we will start the
-meeting".
+"If you will all take your places and keep quiet," he said, "we will start the
+meeting."
 
-There was a lot of activity amoung the animals and a lot of whispering going on
-with considerable speculation as to the purpose of this get to-gether.
-Barrie-Bear cleared hist throat several times, and pulling himself up to his
-full height, (which was at most 3'6 1/2") started to speak.
+There was a lot of activity among the animals and a lot of whispering going on,
+with considerable speculation as to the purpose of this get-together.
+Barrie-Bear cleared his throat several times and, pulling himself up to his
+full height (which was at most 3 ft 6.5 in.), started to speak.
 
-"We are here", he said, "to discuss our future, which at the present time, is I
-feel in some jeopardy".
+"We are here," he said, "to discuss our future, which at the present time is, I
+feel, in some jeopardy."
 
-He was pleased with his opening sentence, and look round and
-seeing an attentive and seemingly interested audience, he felt unusually
-confident, and continued. "The countryside is slowly but surely being overrun
-by a man-made concrete jungle of roads, factories, houses and Bingo Halls.
-"We," he went on in serious tones, "are gradually being evicted from our own
-way of life, and if we continue as we are, we shall be forced out of our very
-existence. This situation cannot and will not be allowed to develop" - his
-voice trembled a little as he spoke - "I propose that we form a committee of
-interested folk to look into the possibility of finding ways to safeguard
-ourselves and our families".
+He was pleased with his opening sentence, and, looking round and seeing an
+attentive and seemingly interested audience, he felt unusually confident, and
+continued. "The countryside is slowly but surely being overrun by a man-made
+concrete jungle of roads, factories, houses and bingo halls. "We," he went on
+in a serious tone, "are gradually being evicted from our own way of life, and
+if we continue as we are, we shall be forced out of our very existence. This
+situation cannot and will not be allowed to develop." His voice trembled a
+little as he continued. "I propose that we form a committee of interested folk
+to look into the possibility of finding ways to safeguard ourselves and our
+families."
 
-There was a general murmur of 'Hear, Hear', and the meeting was then thrown
+There was a widespread murmur of 'Hear, hear', and the meeting was then thrown
 open for general discussion. "Had the chairman any particular thoughts in mind
-regarding a possible solution?" asked Mr. Rabbit. "Yes, I have", answered
-Barrie—Bear, "but it will need careful planning and a great deal of hard work
-by everybody, if it is to succeed", he said.
+regarding a possible solution?" asked Mr Rabbit. "Yes, I have," answered
+Barrie-Bear, "but it will need careful planning and a great deal of hard work
+by everybody, if it is to succeed."
 
 The very thought of mental effort and hard work filled Jason with horror, and
-while he had been enjoying the proceedings so far, he suddenly felt very tired
-and decided that he would lie down and make himself as invisible as a large and
-somewhat overweight Labrador can. He was grateful to Heigh who, if he kept
-still, would afford him some protection against the Chairman's piercing eyes,
-and he lay down behind him, closed his eyes, and hoped that he would be
-unnoticed. In fact, he wasn't; Barrie-Bear had already spotted him, but decided
-that Jason would not nor could not contri- bute anything worthwhile at the
-meeting, and that he would probably be better left to snooze.
+while he had been enjoying the proceedings so far, he suddenly felt very tired.
+He decided that he would lie down and make himself as invisible as a large and
+somewhat overweight Labrador can be. He was grateful to Heigh who, if he kept
+still, would afford him some protection against the Chairman's piercing eyes.
+He lay down behind him, closed his eyes, and hoped that he would not be
+noticed. In fact, he was; Barrie-Bear had already spotted him, but decided that
+Jason would not nor could not contribute anything worthwhile at the meeting
+anyway, and would probably be better left to snooze.
 
-"What I have in mind", he went on, "is to set up our own small community away
-from our present civilisation and so-called progress". At this point he was a
-little uncertain as to how far he would go with pressing home his own plan and
-thought that he would obtain some reaction from the others on his idea in
-principle. He was met with a rather stony silence, and as at most meetings
-no-one wanted to break the ice.
+"What I have in mind," Barrie-Bear went on, "is to set up our own small
+community away from our present civilisation and so-called progress." At this
+point he was a little uncertain as to how far he would go with pressing home
+his plan. First he wanted to gauge the reaction of the others to his idea in
+principle. He was met with a rather stony silence, and, as at most meetings, no
+one wanted to break the ice.
 
-Mr. Owl was looking very serious, blinking his eyes heavily, and if he was
-honest with himself, a little jealous of Barrie—Bear who was stealing all the
-limelight.  Barrie-Bear was aware of this possibility and this was why he
-invited comments from the others. "You are very experienced - very wise, Mr.
-Owl" he said, "how do you feel about the idea?" Mr. Owl blinked very slowly,
+Mr Owl was looking very serious, blinking his eyes heavily. If he was honest
+with himself, he was a little jealous of Barrie-Bear, who was stealing all the
+limelight. Barrie-Bear was aware of this possibility and this was why he
+invited comments from the others. "You are very experienced, very wise, Mr
+Owl," he said. "How do you feel about the idea?" Mr Owl blinked very slowly,
 lifted his head and looked slowly round at the faces eagerly awaiting his
-statement. Everyone had a very healthy respect for Mr. Owl and his family - for
-many years he had assumed responsi— bility for advising on matters great and
+statement. Everyone had a very healthy respect for Mr Owl and his family – for
+many years he had assumed responsibility for advising on matters great and
 small, and now was the time when his words had to be chosen carefully.
 
 Like Barrie-Bear, he had become increasingly disillusioned with modern society,
 and he wished that he had been the one to instigate the proceedings. However,
 he knew that this was no time to allow his pride to stand in the way of their
-salvation, and so after a long throat—clearing beginning, he started to speak
-"Mr. Chairman, Ladies and Gentlemen, we are faced with probably the most
+salvation, and so after a long throat-clearing, he started to speak. "Mr
+Chairman, ladies and gentlemen," he said, "we are faced with probably the most
 far-reaching decision that I can ever remember." He felt quite dramatic, and
 never more sincere. "Our whole way of life has changed completely over the past
-ten or twenty years, and unless we are to be swallowed up in a world where the
-quality of life no longer matters, then we must take the matter into our own
-hands and do as our Chairman suggests. In principle, his idea is a good one,
-and one that had I been a few years younger would have put for- ward myself. I
-formerly propose that we should seek to establish our own community and return
-to a way of life which would mean happiness for us all. How and where you do
-it will be up to the younger members amongst us to decide, and I will support
-you in everything you do," he said.
+ten or 20 years, and unless we are to be swallowed up in a world where the
+quality of life is no longer of any importance, then we must take the matter
+into our own hands and do as our Chairman suggests. In principle, his idea is a
+good one, and one that, had I been a few years younger, I would have put
+forward myself. I formally propose that we should seek to establish our own
+community and return to a way of life that would mean happiness for us all. How
+and where you do this will be up to the younger members among us to decide, but
+I will support you in everything you do," he said.
 
-Barrie-Bear felt a sense of great achievement after Mr. Owl had finished, as he
-knew that, if Mr. Owl supported his idea, then everyone else would do likewise.
-"You have heard Owl's proposal" said the Chairman, "would all those in favour
-raise the right hand" he asked. There was a forest of hands held high in the
-air, and all but one were counted. "How are you going to vote, Jason?" asked
-Barrie—Bear. There was no reply other than a gentle snoring sound coming from
-behind Heigh. "I suppose he should be given the chance to vote", said
-Barrie-Bear, "would you kindly give Jason a nudge?" "Alright", said Heigh, only
+Barrie-Bear felt a sense of great achievement after Mr Owl had finished, as he
+knew that, if Mr Owl supported his idea, then everyone else would do likewise.
+"You have heard Owl's proposal," said the Chairman. "All those in favour please
+raise your right hand," he instructed. There was a forest of hands held high in
+the air, and all but one were counted. "How are you going to vote, Jason?"
+asked Barrie-Bear. There was no reply other than a gentle snoring sound coming
+from behind Heigh. "I suppose he should be given the chance to vote," said
+Barrie-Bear. "Would you kindly give Jason a nudge?" "Alright," said Heigh, only
 too pleased to be able to move at last. He did a couple of circles round Jason,
-and as he did so, flicked him with his long tail.
+and, as he did so, flicked him with his long tail.
 
-"Ow!" said Jason, "what was that?" "Wake up," said Heigh, "the Chairman is
+"Ow!" said Jason. "What was that?" "Wake up," said Heigh, "the Chairman is
 speaking to you." What a nuisance, thought Jason, I do object to being woken so
-rudely on a summer's afternoon - I wonder what Barrie—Bear wants me for.  He
+rudely on a summer's afternoon – I wonder what Barrie-Bear wants me for. He
 yawned, raised his head and rose lazily to his feet. "I don't suppose," said
-Barrie—Bear, "that you have heard one word of what has been going on", he said.
-"No" replied Jason, who for all his faults, always spoke the truth. Barrie
-wondered if it was worth repeating everything all over again, and decided
-quickly that it wasn't. "Well it's your own fault, if you don't agree with what
-has been decided", he said rather crossly. "Eh? What?" said Jason, suddenly
-realizing that he had missed something of importance. "Get your friend Heigh to
-tell you after the meeting". The vote has been carried unanimously", he said,
+Barrie-Bear, "that you have heard one word of what has been going on?" "No,"
+replied Jason, who for all his faults always spoke the truth. Barrie wondered
+if it was worth saying everything all over again, and decided quickly that it
+wasn't. "Well, it's your own fault, if you don't agree with what has been
+decided," he said rather crossly. "Eh? What?" said Jason, suddenly realizing
+that he had missed something of importance. "Get your friend Heigh to tell you
+after the meeting. The vote has been carried unanimously," said Barrie-Bear,
 "and therefore we must now go away and think of the ways and means to put our
-plan into operation", he declared. "The meeting is now adjourned".
+plan into operation. The meeting is now adjourned."
 
-Mrs. Rabbit, who had spent the entire afternoon knitting for her forthcoming
-off—spring, had nevertheless been listening attentively and although had no
-doubts about the idea in principle she, like all good mothers, was thinking
-about how they were all going to manage if, as would seem likely, they were to
-be involved in a move. As it was a hot day and as she knew that she had done a
-lot of baking the previous day, she thought that it would be a nice idea to
-have a tea party. She had a quick word with Mr. Rabbit who agreed, and together
-they went over to Mr. & Mrs. Beaver and their three young sons Rush, Rory and
-Tear. "would you all like to come and have tea with us?" said Mrs. Rabbit.
-"Thank—you" replied Mrs. Beaver, "we would like that very much, and perhaps we
-can have a talk about the meeting this afternoon". Mr. & Mrs. Mouse were also
-pleased to come as was old Mrs. Squirrel, Mr. Weasel and Mr. Robin. The Water
-Rat family unfortunately had to return hom as the twins Jimmy and & Timmy felt
-rather tired, and Mrs. Water Rat said she ought to put them to bed. Barrie—Bear
-declined the invitation, saying that he had a great many important things to
-attend to - amongst them no doubt his tummy - and was seen to wander off, with
-his head held high and looking pleased with the afternoon's activities.
+Mrs Rabbit, though she had spent the entire afternoon knitting for her
+forthcoming offspring, had nevertheless been listening attentively to the
+proceedings. Although she had no doubts about the idea in principle, she, like
+all good mothers, was thinking about how she and her family were all going to
+manage if, as would seem likely, they would have to move. As it was a hot day,
+and having done a lot of baking the previous afternoon, she thought that it
+would be a nice idea to have a tea party. She had a quick word with Mr Rabbit,
+who agreed, and together they went over to the home of Mr and Mrs Beaver and
+their three young sons, Rush, Rory and Tear. "Would you all like to come and
+have tea with us?" asked Mrs Rabbit. "Thank you," replied Mrs Beaver, "we would
+like that very much, and perhaps we can have a talk about the meeting this
+afternoon." Mr and Mrs Mouse were also pleased to come, as was old Mrs
+Squirrel, Mr Weasel and Mr Robin. The Water Rat family unfortunately had to
+return home as the twins, Jimmy and Timmy, felt rather tired, and Mrs Water Rat
+said she ought to put them to bed. Barrie-Bear declined the invitation, saying
+that he had a great many important things to attend to – among them no doubt
+his tummy – and was seen to wander off, with his head held high and looking
+pleased with the afternoon's activities.
 
 Chapter II - The Tea Party
 --------------------------
