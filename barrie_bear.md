@@ -4,7 +4,7 @@ Book I – Island of Dreams
 Chapter I
 ---------
 
-Bang, bang, bang went Barrie-Bear's stick on the solid stump of an oak tree
+*Bang, bang, bang* went Barrie-Bear's stick on the solid stump of an oak tree
 that had been recently felled. Barrie-Bear was a portly character, covered from
 head to foot in soft pitch-black fur with two round brown eyes sticking out
 like organ stops from his almost-square head. He had an aristocratic air about
@@ -67,7 +67,7 @@ many years he had assumed responsibility for advising on matters great and
 small, and now was the time when his words had to be chosen carefully.
 
 Like Barrie-Bear, he had become increasingly disillusioned with modern society,
-and he wished that he had been the one to instigate the proceedings. However,
+and he wished that *he* had been the one to instigate the proceedings. However,
 he knew that this was no time to allow his pride to stand in the way of their
 salvation, and so after a long throat-clearing, he started to speak. "Mr
 Chairman, ladies and gentlemen," he said, "we are faced with probably the most
