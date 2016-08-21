@@ -128,7 +128,15 @@ Chapter III - Happenings at Oak Tree Glen
 
 "Most definitely," answered Barrie-Bear. "What else would I be humping round in that large bundle, which Mr Weasel kindly offered to assist me with? Tell me if I've forgotten anything."
 
-Mrs. Owl and Mrs. Rabbit unfastened the bundle and opened it out on the ground. "Good heavens!" exclaimed Mrs. Rabbit, "I never realized that you knew about such things." "Madam," replied Barrie-Bear, "one has to be prepared for any contingency." "Yes - well," said Mrs. Rabbit, who felt she was getting rather out of her depth, "I think we had better attend to the patient." Mrs. Owl had already helped herself to the blankets and a small pillow. She asked Mr. Weasel to bring the stretcher over to where Rory was lying, and when in position, she made up a little bed for him. Very gently, they lifted Rory on to it, and when he was comfortable, Mrs. Owl asked him to tell exactly what had happened.
+Mrs Owl and Mrs Rabbit unfastened the bundle and opened it out on the ground.
+
+"Good heavens!" exclaimed Mrs Rabbit. "I never realized that you knew about such things."
+
+"Madam," replied Barrie-Bear, "one has to be prepared for any contingency."
+
+"Yes – well," said Mrs Rabbit, who felt she was getting rather out of her depth. "I think we had better attend to the patient."
+
+Mrs Owl had already helped herself to the blankets and a small pillow. She asked Mr Weasel to bring the stretcher over to where Rory was lying, and when in position, she made up a little bed for him. Very gently, they lifted Rory on to it, and when he was comfortable, Mrs Owl asked him to tell everyone exactly what had happened.
 
 It transpired that when the three boys went off into the forest to play, they decided to do a bit of exploration. They had been in the forest several times before, but there was one part which they had heard a lot about but had never ventured into. The place is known locally as Oak Tree Glen and everyone says that only a fool or a brave man would ever go there. Consequently, it was always deserted, but as they thought there was safety in numbers Rush, Rory and Tear decided to ignore all previous warnings and explore forbidden territory. It was a very dark area of the wood, and in places they had to bend almost double to get through the low branches which seemed quite determined to stop their progress as if in warning of what lay ahead.
 
