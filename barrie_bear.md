@@ -57,7 +57,17 @@ Heigh was panting and could hardly get his words out. "It's Rory,” he said. "A
 
 "Well,” said Heigh, "I was just out for a quick canter in the forest, when I thought I heard a cry for help. I stood quite still, which as you know I find very difficult, and there it was again – a faint cry of 'help!' I galloped off in the direction of the sound and soon met with Mr Mole. He was pleased to see me, and told me that Rory had met with a bad accident, and thought he had broken his leg. He told me that you were having tea with Mrs Rabbit – and asked me to come and tell you. I came as quickly as I could." Although he was of course very sorry for little Rory, Heigh was nevertheless delighted to be such an important messenger.
 
-"Oh my goodness", said Mr. Rabbit, who had now been joined by all the others. "We must go to him straight away", said Mrs. Beaver. "Wait!", said old Mrs. Squirrel, "there will be things we shall need. I think it would be sensible if Heigh would take Mr. & Mrs. Beaver to Rory so that you can be with him, and the rest of us can follow on with a stretcher, as we shall have to be careful in moving him," she said with an air of authority. Heigh was already waiting to go and called to the Beavers to jump on his back. No sooner were they on than he was off, going as fast as his legs would carry him back through the forest. "How shall we know how to find you?" shouted Mr. Rabbit. "I will come back for you", gasped Heigh, now nearly out of earshot.
+"Oh my goodness,” said Mr Rabbit, who had now been joined by all the others.
+
+"We must go to him straight away,” said Mrs Beaver.
+
+"Wait!" said old Mrs Squirrel. With an air of authority she continued: "There will be things we shall need. I think it would be sensible if Heigh would take Mr and Mrs Beaver to Rory so that you can be with him, and the rest of us can follow on with a stretcher, as we shall have to be careful in moving him.”
+
+Heigh was already waiting to go and called to the Beavers to jump on his back. No sooner were they on it than he was off, going as fast as his legs would carry him back through the forest.
+
+"How shall we know how to find you?" shouted Mr Rabbit.
+
+"I will come back for you,” gasped Heigh, now nearly out of earshot.
 
 As soon as they were gone, Mrs. Squirrel got down to organising the others into some sort of medical party. "Mr. Weasel, would you go and find something which we could use as a stretcher and perhaps, Mr. Robin, you could go and find Barrie-Bear and tell him what has happened. He would be rather put out if he was not informed of such an important event. Mr. Robin flew off saying that he wouldn't be long, and Mr. Weasel hurried off to find the stretcher. "Now, Mrs. Rabbit, we had better go indoors to find some bandages and blankets".
 
