@@ -428,7 +428,7 @@ Barrie-Bear was kind but firm. "I think," he said as nicely as he could, "that i
 
 His suggestion met with everyone's approval and Heigh was asked to find a trap and report with it to Barrie-Bear's house tomorrow morning at eight o'clock.
 
-Chapter XI - In Search of a Dream
+Chapter VI - In Search of a Dream
 ---------------------------------
 
 Promptly at eight o'clock the next morning Heigh pulled up outside Barrie-Bear's house with full harness on and pulling a gaily painted trap behind him. Thanks to Mr Weasel, who was as good as an alarm clock first thing in the morning, both he and Barrie-Bear were ready and waiting. It was a really lovely morning with a clear blue sky and the sun was just rising over the tall tree-tops. It was undoubtedly going to be very hot and Mr Weasel had taken the trouble to prepare a few snacks for the journey.
