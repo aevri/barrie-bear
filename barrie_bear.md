@@ -348,9 +348,19 @@ He must have gone off to sleep straightaway, for the next thing he knew Barrie-B
 
 Barrie-Bear finished off his jar of honey, patted his tummy with a gesture of satisfaction and curled up in his bed feeling confident for the morrow.
 
-Mr. Weasel slept like a log until just after daybreak, when he turned over and was awakened by a sharp pricking sensation in his side. He almost jumped out of the chair thinking that he had been bitten by something. On closer inspection, he discovered a broken spring in the chair which was protruding from the well worn upholstery. At least the rude awakening had got him up rather earlier than anticipated, and before waking Barrie-Bear, he prepared some breakfast.
+Mr Weasel slept like a log until just after daybreak, when he turned over and was awakened by a sharp pricking sensation in his side. He almost jumped out of the chair, thinking that he had been bitten by something. On closer inspection, he discovered a broken spring protruding from the chair’s well-worn upholstery. At least the rude awakening had got him up rather earlier than anticipated. Before waking Barrie-Bear, he prepared some breakfast.
 
-He went over to Barrie-Bear's bed to find him on his back with legs and arms in the air and snoring very gently. It was a shame to wake him, but he poked him softly in the side which prompted just a slight grunt. Mr. Weasel gave a harder poke and this time Barrie—Bear rolled over and rubbed his eyes. Gradually they opened and he murmured "What on earth are you doing here Mr. Weasel?" "I spent the night here - remember? and now it is time to get up - it's a lovely morning." Barrie—Bear slowly came to his senses, and said, "Of course - good morning Mr. Weasel - thank goodness the weather is alright, we had better eat some breakfast and get off to the meeting." "Breakfast is all ready" said Mr. Weasel. "So it is" exclaimed Barrie-Bear. "Thank you Mr. Weasel - you must come and stay more often." They took their time and when another honey jar had been licked clear, they set off for the meeting.
+He went over to Barrie-Bear's bed to find him on his back with legs and arms in the air and snoring very gently. It was a shame to wake him, but he poked him softly in the side, prompting just a slight grunt. Mr Weasel gave a harder poke and this time Barrie-Bear rolled over and rubbed his eyes. Gradually they opened."What on earth are you doing here, Mr Weasel?" he murmured.
+
+"I spent the night here, remember? And now it is time to get up – it's a lovely morning."
+
+Barrie-Bear slowly came to his senses. "Of course,” he said. “Good morning, Mr Weasel. Thank goodness the weather is all right – we had better eat some breakfast and get off to the meeting."
+
+"Breakfast is all ready," said Mr Weasel.
+
+"So it is," exclaimed Barrie-Bear. "Thank you, Mr Weasel – you must come and stay more often."
+
+They took their time, and when another honey jar had been licked clear, they set off for the meeting.
 
 When they arrived at the forest clearing, Mr. Beaver was the only one there. However, it was early yet and no doubt the others would be along shortly. "Good morning" said Mr. Beaver, "what a lovely day." "Good morning" answered Barrie-Bear and Mr. Weasel in unison and "Yes, it is," continued Barrie-Bear. "How is young Rory?" "He didn't have a very good night" said Mr. Beaver, and Mrs. Beaver and Mrs. Squirrel will be staying with him this morning. Mr. & Mrs. Rabbit should be here soon though," he went on. As he spoke, Mr. Robin arrived saying that he had just passed Heigh and Jason and that he understood that Mr. & Mrs. Mouse and old Mr. & Mrs. Owl were also coming. "Excellent" said Barrie-Bear, "it sounds as though we shall be well represented."
 
