@@ -435,7 +435,13 @@ Mr Weasel thought his remark very funny and shook with laughter.
 
 "Never mind all that," exclaimed Mr Beaver. "I think I have found something rather more interesting."
 
-The mist had cleared, and he pointed towards a headland which until now had been almost obscured. Beyond the headland, they could make out the vague shape of something which looked like a fat cigar. With the aid of the telescope, they were able to establish that what they could see was land. Heigh wanted to have a look, but he was not allowed to because, being so clumsy, it was thought that he might damage the telescope. "We cannot really see enough from here," said Barrie- Bear. "What we need is a small boat, and go and have a proper look." "Where on earth are we going to get a boat from?" asked Mr. Weasel. They scanned the beach below them and in a small inlet almost below where they were standing, was not one boat but three.
+The mist had cleared, and he pointed towards a headland that until now had been almost obscured. Beyond the headland, they could make out the vague shape of something that looked like a fat cigar. With the aid of the telescope, they were able to establish that what they could see was land. Heigh wanted to have a look, but he was not allowed to because, being so clumsy, it was thought that he might damage the telescope.
+
+"We cannot really see enough from here," said Barrie-Bear. "What we need is a small boat, to go and have a proper look."
+
+"Where on earth are we going to get a boat from?" asked Mr Weasel.
+
+They scanned the beach below them. In a small inlet almost below where they were standing was not one boat but three.
 
 "There we are," said Barrie—Bear, "they will do very nicely." "But, we cannot just go and help ourselves" replied Mr. Beaver. "Of course not, but there must be someone around whom we could ask. Heigh, you will have to stay here and guard the telescope, while we go and make enquiries." Poor Heigh, he realised that he was too big to go to sea in one of those little dinghys, and with a sad expression on his face, he could do nothing but reluctantly agree.
 
