@@ -118,7 +118,15 @@ Everyone was ready and Heigh went on ahead with Barrie-Bear bringing up the rear
 Chapter III - Happenings at Oak Tree Glen
 -----------------------------------------
 
-"Thank goodness you've arrived", said Mrs. Beaver, who was sitting on the ground with Rory‘s head lying comfortably in her lap, "Rory is in a great deal of pain". "We will soon have him well again" said Mrs. Squirrel, who was now very much in her element. "Do you have those blankets and bandages? Mrs. Rabbit", she asked as she bent down beside Rory to inspect the damage. "I have everything you could possibly need", butted in Barrie-Bear. "You?" Mrs. Squirrel looked surprised. "Most definitely" answered Barrie-Bear, "what else would I be humping round in that large bundle, which Mr. Weasel kindly offered to assist me with? Tell me if I've forgotten anything."
+"Thank goodness you've arrived,” said Mrs Beaver, who was sitting on the ground with Rory’s head lying comfortably in her lap. "Rory is in a great deal of pain.”
+
+"We will soon have him well again," said Mrs Squirrel, who was now very much in her element. "Do you have those blankets and bandages, Mrs Rabbit?” she asked as she bent down beside Rory to inspect the damage.
+
+"I have everything you could possibly need,” butted in Barrie-Bear.
+
+"You?" Mrs Squirrel looked surprised.
+
+"Most definitely," answered Barrie-Bear. "What else would I be humping round in that large bundle, which Mr Weasel kindly offered to assist me with? Tell me if I've forgotten anything."
 
 Mrs. Owl and Mrs. Rabbit unfastened the bundle and opened it out on the ground. "Good heavens!" exclaimed Mrs. Rabbit, "I never realized that you knew about such things." "Madam," replied Barrie-Bear, "one has to be prepared for any contingency." "Yes - well," said Mrs. Rabbit, who felt she was getting rather out of her depth, "I think we had better attend to the patient." Mrs. Owl had already helped herself to the blankets and a small pillow. She asked Mr. Weasel to bring the stretcher over to where Rory was lying, and when in position, she made up a little bed for him. Very gently, they lifted Rory on to it, and when he was comfortable, Mrs. Owl asked him to tell exactly what had happened.
 
