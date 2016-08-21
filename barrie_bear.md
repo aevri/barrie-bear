@@ -154,7 +154,9 @@ They quickly came down from the trees and went over to Rory, who had missed all 
 
 Rush told Mole what had happened, and when he said how frightened they had been, Mole laughed so much that Tear thought he would choke. He was a most friendly little character, and he was very concerned about Rory, who was still lying quite still and pale.
 
-They were unable to tell how badly he was hurt, but they realised that they had better not move him - on the other hand, if they went to get help, the others would then find out where they had been and that would mean getting told off or worse. After some consultation, they decided that if you break the rules then you expect to be punished, and because they were naturally worried about Rory, they asked Mole if he would help. "Of course I will" said Mole, "I can tunnel my way out of the wood quicker than you can walk, I will soon get a message to Mr. & Mrs. Beaver." No sooner had he spoken than he was off across the glen and quite suddenly vanished down his hole. A slight rumbling sound and he was gone.
+They were unable to tell how badly he was hurt, but they realised that they had better not move him. On the other hand, if they went to get help, the others would then find out where they had been and that would mean getting told off, or worse. After some consultation, they decided that if you break the rules then you should expect to be punished, and because they were naturally worried about Rory, they asked Mole if he would help.
+
+"Of course I will," said Mole. "I can tunnel my way out of the wood quicker than you can walk. I will soon get a message to Mr and Mrs Beaver." No sooner had he spoken than he was off across the glen and quite suddenly vanished down his hole. A slight rumbling sound and he was gone.
 
 It was soon afterwards that Mole was nearly frightened to death by what he thought was an earthquake, which of course later turned out to be Heigh who was clumping about overhead on his afternoon ramble. As soon as it was safe to surface, he poked his head up through the pine needles and was able to squeak loud enough to attract his attention.
 
