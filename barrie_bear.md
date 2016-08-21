@@ -499,7 +499,21 @@ They were delighted to round the headland and see Heigh on the cliff top racing 
 
 It wasn't long before they beached the boat, and they were all very relieved to see that it hadn't been missed. They were very careful to return it to exactly the same position and made sure that there was no damage. They then climbed the cliff and rejoined Heigh, who was eagerly awaiting them.
 
-"What was it like?" asked Heigh, "you have been a long time!". "It is absolutely what we are looking for," replied Barrie-Bear, and as quickly as he could, he described the island to him. "How am I going to get there?" inquired Heigh sadly, "it is too far to swim and I am too big for a boat," he said - almost with tears in his eyes. "Don't you worry" said Barrie-Bear, "we shall have to construct a large raft, big enough to carry everyone, including you, Heigh." "You mean I shall be able to come after all" said Heigh, cheering up a little. "Of course" said Barrie-Bear, "we will not leave you behind. But now we must set off for home before it gets dark." "Alright" said Heigh, now back to his old cheerful self. "We shall go like the wind." He wasn't joking - he galloped nearly all the way, not even stopping for half-way refreshments.
+"What was it like?" asked Heigh. "You have been a long time!"
+
+"It is absolutely what we are looking for," replied Barrie-Bear, and as quickly as he could he described the island to him.
+
+"How am I going to get there?" inquired Heigh sadly. "It is too far to swim and I am too big for a boat," he said, almost with tears in his eyes.
+
+"Don't you worry," said Barrie-Bear. "We shall have to construct a large raft, big enough to carry everyone, including you, Heigh."
+
+"You mean I shall be able to come after all," said Heigh, cheering up a little.
+
+"Of course," said Barrie-Bear. "We will not leave you behind. But now we must set off for home before it gets dark."
+
+"All right," said Heigh, now back to his old cheerful self. "We shall go like the wind."
+
+He wasn't joking – he galloped nearly all the way, not even stopping for half-way refreshments.
 
 - - -
 
