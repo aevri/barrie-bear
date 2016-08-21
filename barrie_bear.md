@@ -113,7 +113,7 @@ They didn't have far to go, for when they reached a small clearing in the trees,
 
 "Well," said Heigh, "I suppose you could say that he is as well as can be expected in the circumstances; he seems to be in quite some pain, though, and I think we had better go to him if everyone is ready."
 
-Everyone was ready and Heigh went on ahead with Barrie-Bear bringing up the rear, muttering to himself something about four-legged animals having an unfair advantage over those of us with only two. However, the journey was not too long and soon they were reunited with Mr. & Mrs. Beaver, Rush, Rory and Tear.
+Everyone was ready and Heigh went on ahead with Barrie-Bear bringing up the rear, muttering to himself something about four-legged animals having an unfair advantage over those of us with only two. However, the journey was not too long and soon they were reunited with Mr and Mrs Beaver, Rush, Rory and Tear.
 
 Chapter III - Happenings at Oak Tree Glen
 -----------------------------------------
