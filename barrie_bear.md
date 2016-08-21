@@ -58,7 +58,17 @@ Barrie wondered if it was worth saying everything all over again, and decided qu
 
 "Get your friend Heigh to tell you after the meeting. The vote has been carried unanimously," said Barrie-Bear, "and therefore we must now go away and think of the ways and means to put our plan into operation. The meeting is now adjourned."
 
-Mrs Rabbit, though she had spent the entire afternoon knitting for her forthcoming offspring, had nevertheless been listening attentively to the proceedings. Although she had no doubts about the idea in principle, she, like all good mothers, was thinking about how she and her family were all going to manage if, as would seem likely, they would have to move. As it was a hot day, and having done a lot of baking the previous afternoon, she thought that it would be a nice idea to have a tea party. She had a quick word with Mr Rabbit, who agreed, and together they went over to the home of Mr and Mrs Beaver and their three young sons, Rush, Rory and Tear. "Would you all like to come and have tea with us?" asked Mrs Rabbit. "Thank you," replied Mrs Beaver, "we would like that very much, and perhaps we can have a talk about the meeting this afternoon." Mr and Mrs Mouse were also pleased to come, as was old Mrs Squirrel, Mr Weasel and Mr Robin. The Water Rat family unfortunately had to return home as the twins, Jimmy and Timmy, felt rather tired, and Mrs Water Rat said she ought to put them to bed. Barrie-Bear declined the invitation, saying that he had a great many important things to attend to – among them no doubt his tummy – and was seen to wander off, with his head held high and looking pleased with the afternoon's activities.
+Mrs Rabbit, though she had spent the entire afternoon knitting for her forthcoming offspring, had nevertheless been listening attentively to the proceedings. Although she had no doubts about the idea in principle, she, like all good mothers, was thinking about how she and her family were all going to manage if, as would seem likely, they would have to move. As it was a hot day, and having done a lot of baking the previous afternoon, she thought that it would be a nice idea to have a tea party. She had a quick word with Mr Rabbit, who agreed, and together they went over to the home of Mr and Mrs Beaver and their three young sons, Rush, Rory and Tear.
+
+"Would you all like to come and have tea with us?" asked Mrs Rabbit.
+
+"Thank you," replied Mrs Beaver, "we would like that very much, and perhaps we can have a talk about the meeting this afternoon."
+
+Mr and Mrs Mouse were also pleased to come, as was old Mrs Squirrel, Mr Weasel and Mr Robin.
+
+The Water Rat family unfortunately had to return home as the twins, Jimmy and Timmy, felt rather tired, and Mrs Water Rat said she ought to put them to bed.
+
+Barrie-Bear declined the invitation, saying that he had a great many important things to attend to – among them no doubt his tummy – and was seen to wander off, with his head held high and looking pleased with the afternoon's activities.
 
 Chapter II - The Tea Party
 --------------------------
