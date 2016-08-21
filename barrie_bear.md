@@ -334,7 +334,19 @@ The fire burned brightly and Mr Weasel enjoyed himself dusting and cleaning. The
 
 He picked up the key, went over to the chest, and by standing on tiptoe easily reached the lock. He turned the key noiselessly, released the lock and pushed the lid upwards. It wouldn't move at first but then, quite suddenly, it did, creaking loudly. Mr Weasel almost let the lid drop – his heart was thumping and his legs were trembling. Barrie-Bear grunted gently and turned in the chair. Mr Weasel held his breath and closed his eyes – he thought his little lungs would burst. But then, he heard a gentle snoring rather like a purr, and knew that Barrie-Bear had gone off to sleep again. He lowered the lid gently, secured the lock and returned the key to its hiding place. He felt a sense of great relief and resolved that he would never do anything like that again. He, too, was feeling the strain, and thought that he would settle down for a rest in the other chair.
 
-He must have gone off to sleep straightaway, for the next thing he knew was Barrie-Bear prodding him in the tummy and saying that he was feeling hungry. He opened his eyes, stretched and yawned, and then went off to the cupboard to fetch some refreshments. Mr. Weasel was still full of Mrs. Rabbit's tea, but he roused himself and fetched a bowl of nuts and berries together with a jar of honey which Barrie-Bear consumed as though he had had nothing to eat for a week. "Could I go to bed now?" asked Mr. Weasel, who was feeling very weary. "Yes" said Barrie-Bear. "Will you be alright in that chair by the fire?" "I think I could sleep anywhere" replied Mr. Weasel who would have happily settled for a bed of nails. "Excellent" said Barrie-Bear, "we shall have to be up early in the morning, so I will wish you Good-night." "Goodnight" said Mr. Weasel whose eyes were already half—closed. Barrie-Bear finished off his jar of honey, patted his tummy with a gesture of satisfaction and curled up in his bed feeling confident for the morrow.
+He must have gone off to sleep straightaway, for the next thing he knew Barrie-Bear was prodding him in the tummy and saying that he was feeling hungry. He opened his eyes, stretched and yawned. Mr Weasel was still full of Mrs Rabbit's tea, but he roused himself and went off to the cupboard to find some refreshments. He fetched a bowl of nuts and berries, together with a jar of honey. Barrie-Bear consumed this mixture as though he had had nothing to eat for a week.
+
+ "Could I go to bed now?" asked Mr Weasel, who was still feeling very weary.
+
+"Yes," said Barrie-Bear. "Will you be all right in that chair by the fire?"
+
+"I think I could sleep anywhere," replied Mr Weasel, who would have happily settled for a bed of nails.
+
+"Excellent," said Barrie-Bear. "We shall have to be up early in the morning, so I will wish you goodnight."
+
+"Goodnight," said Mr Weasel, whose eyes were already half closed.
+
+Barrie-Bear finished off his jar of honey, patted his tummy with a gesture of satisfaction and curled up in his bed feeling confident for the morrow.
 
 Mr. Weasel slept like a log until just after daybreak, when he turned over and was awakened by a sharp pricking sensation in his side. He almost jumped out of the chair thinking that he had been bitten by something. On closer inspection, he discovered a broken spring in the chair which was protruding from the well worn upholstery. At least the rude awakening had got him up rather earlier than anticipated, and before waking Barrie-Bear, he prepared some breakfast.
 
