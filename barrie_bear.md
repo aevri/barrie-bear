@@ -171,7 +171,9 @@ Barrie-Bear made sure that his many 'accoutrements' were all bundled up again, b
 
 Barrie-Bear asked Mr Beaver if he would give him a hand loading up, and together they threw Barrie-Bear's bundle on to Heigh's back. After considerable difficulty in making him stand still, they eventually secured it firmly and were satisfied that it would withstand Heigh's frolics.
 
-After the heat of the day, they started off home in the pleasant cooling air of the evening. Heigh led the party, and he was particularly useful in trampling down the undergrowth - thus giving the stretcher bearer a smooth path on which to transport young Rory. All went well for about half an hour or so, and then Barrie-Bear who was already some way behind the others, shouted for everyone to stop.
+After the heat of the day, they started off home in the pleasant cooling air of the evening. Heigh led the party, and he was particularly useful in trampling down the undergrowth – thus giving the stretcher bearer a smooth path on which to transport young Rory.
+
+All went well for about half an hour or so, and then Barrie-Bear, who was already some way behind the others, shouted for everyone to stop.
 
 Heigh came to an abrupt halt, and so did Mr. Weasel and all the others. They waited for Barrie-Bear to catch up and asked him if he could be a little bit quicker. "No," he said, "I can't - a bear cannot go too fast because his fur is so heavy and with all the responsibility I have to bear - hah! hah! that's supposed to be a joke - oh well, never mind - I just cannot go as fast as you all can."
 
