@@ -1,6 +1,8 @@
 Book I – Island of Dreams
 =========================
 
+![Johnny Bear](johnny-bear.jpg)
+
 Chapter I
 ---------
 
