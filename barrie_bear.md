@@ -14,7 +14,11 @@ There was a lot of activity among the animals and a lot of whispering going on, 
 
 He was pleased with his opening sentence, and, looking round and seeing an attentive and seemingly interested audience, he felt unusually confident, and continued. "The countryside is slowly but surely being overrun by a man-made concrete jungle of roads, factories, houses and bingo halls. "We," he went on in a serious tone, "are gradually being evicted from our own way of life, and if we continue as we are, we shall be forced out of our very existence. This situation cannot and will not be allowed to develop." His voice trembled a little as he continued. "I propose that we form a committee of interested folk to look into the possibility of finding ways to safeguard ourselves and our families."
 
-There was a widespread murmur of 'Hear, hear', and the meeting was then thrown open for general discussion. "Had the chairman any particular thoughts in mind regarding a possible solution?" asked Mr Rabbit. "Yes, I have," answered Barrie-Bear, "but it will need careful planning and a great deal of hard work by everybody, if it is to succeed."
+There was a widespread murmur of 'Hear, hear', and the meeting was then thrown open for general discussion.
+
+"Had the chairman any particular thoughts in mind regarding a possible solution?" asked Mr Rabbit.
+
+"Yes, I have," answered Barrie-Bear, "but it will need careful planning and a great deal of hard work by everybody, if it is to succeed."
 
 The very thought of mental effort and hard work filled Jason with horror, and while he had been enjoying the proceedings so far, he suddenly felt very tired. He decided that he would lie down and make himself as invisible as a large and somewhat overweight Labrador can be. He was grateful to Heigh who, if he kept still, would afford him some protection against the Chairman's piercing eyes. He lay down behind him, closed his eyes, and hoped that he would not be noticed. In fact, he was; Barrie-Bear had already spotted him, but decided that Jason would not nor could not contribute anything worthwhile at the meeting anyway, and would probably be better left to snooze.
 
