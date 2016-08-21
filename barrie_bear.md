@@ -314,7 +314,13 @@ Barrie-Bear decided to return home, as he had a great deal of thinking to do bef
 
 In truth, Barrie-Bear had indeed forgotten. His conscience was pricking him all over, but he soon came to the conclusion that a white lie was preferable to hurting Mr Weasel's feelings. "Me?” he said, “Forget? Of course I didn't. I was merely going on ahead to put the place in order."
 
-They covered the remaining part of the journey together, and on the way Barrie—Bear explained about the meeting the next day. Mr. Weasel was remarkably understanding and said that if Barrie-Bear didn't mind he would see to all the household chores and cooking, while he worked out what he was going to say at the meeting. "That would be most kind" said Barrie—Bear, "I don't suppose we shall want any more to eat to—night," he continued, "but I would be grateful if you would tidy the place up a bit and perhaps light a fire - my brain always works better in a warm, cosy atmosphere." "I will do that straight away" said Mr. Weasel. They went inside, and sure enough it was quite obvious that Barrie—Bear did little or no housework.
+They covered the remaining part of the journey together, and on the way Barrie-Bear explained about the meeting the next day. Mr Weasel was remarkably understanding and said that, if Barrie-Bear didn't mind, he would see to all the household chores and cooking while Barrie-Bear worked out what he was going to say at the meeting.
+
+"That would be most kind," said Barrie-Bear. "I don't suppose we shall want any more to eat tonight," he continued, "but I would be grateful if you would tidy the place up a bit and perhaps light a fire – my brain always works better in a warm, cosy atmosphere."
+
+"I will do that straight away," said Mr Weasel.
+
+They went inside, and sure enough it was quite obvious that Barrie-Bear did little or no housework.
 
 His 'residence‘ comprised just one room which was sparsely furnished, although what there was looked comfortable. In addition to his wooden chest, he had a solid looking circular oak table, two well-worn easy chairs and an oval shaped bed which looked rather like a dog basket on legs, at one end of the room was a cupboard built into the wall, with shelves groaning under the weight of several jars of nuts, berries and honey.
 
