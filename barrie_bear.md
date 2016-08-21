@@ -300,7 +300,13 @@ When they returned they found that Rory had been put to bed with his leg in a sp
 Chapter V - In Search of a Dream
 --------------------------------
 
-After an excellent tea and with a feeling of being rather more full than was good for him, Barrie-Bear took Mr. Beaver aside and told him that he thought that an extra—ordinary meeting should be held, if possible to-morrow, to discuss the present crisis and to formulate a plan of action in line with the proposal regarding the setting up of the new community. "Quite right Barrie-Bear" said Mr. Beaver, "the events of the past twentyfour hours have certainly called for some immediate action. Where shall we meet?" "I would suggest that we use the same clearing in the forest that we used yesterday" said Barrie-Bear. "Good idea" said Mr. Beaver getting quite excited. "I will go and tell everybody to be there first thing in the morning" and off he went at a brisk pace to inform the others.
+After an excellent tea and with a feeling of being rather fuller than was good for him, Barrie-Bear took Mr Beaver aside and told him that he thought that an extraordinary meeting should be held, if possible tomorrow, to discuss the present crisis. A plan of action was needed regarding the setting up of the new community.
+
+"Quite right, Barrie-Bear," said Mr Beaver. "The events of the past 24 hours have certainly called for some immediate action. Where shall we meet?"
+
+"I would suggest the clearing in the forest that we used yesterday," said Barrie-Bear.
+
+"Good idea," said Mr Beaver, getting quite excited. "I will go and tell everybody to be there first thing in the morning," he said, and off he went at a brisk pace to inform the others.
 
 Barrie-Bear decided to return home as he had a great deal of thinking to do before the meeting the following day. He plodded off down the forest trail, his mind jumping from one thing to another, which made concentration difficult. It was a sort of snuffling noise that prompted him to stop and on looking round he saw Mr. Weasel coming after him at great speed. "Of course" he muttered to himself "I offered to put Weasel up for a few days. Oh bother, I can think so much better on my own. Ah well, one cannot be unneighbourly and anyway he can be good company." "I thought that you had forgotten all about me" puffed Mr. Weasel with a tone of sadness in his voice. If he were truthful he had but he turned to Mr. Weasel and said "Me? Forget? Of course I didn't. I was merely going on ahead to put the place in order" replied Barrie—Bear. His conscience was pricking him all over, but he soon came to the conclusion that a "White Lie" was preferable to hurting Mr. Weasel's feelings.
 
