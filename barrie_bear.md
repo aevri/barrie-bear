@@ -295,7 +295,7 @@ Mr Robin hadn't thought of that but said that it was most unlikely and that he w
 
 "I think we should get back to Mrs Rabbit," said Mr Beaver, scenting that the atmosphere was becoming a trifle sticky.
 
-When they arrived they found that Rory had been put to bed with his leg in a splint and a lovely tea was waiting for them in front of a roaring log fire. Jason was still fast asleep, no doubt dreaming of his daring rescue operation.
+When they returned they found that Rory had been put to bed with his leg in a splint and a lovely tea was waiting for them in front of a roaring log fire. Jason was still fast asleep, no doubt dreaming of his daring rescue operation.
 
 Chapter V - In Search of a Dream
 --------------------------------
