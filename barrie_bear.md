@@ -69,9 +69,23 @@ Heigh was already waiting to go and called to the Beavers to jump on his back. N
 
 "I will come back for you,” gasped Heigh, now nearly out of earshot.
 
-As soon as they were gone, Mrs. Squirrel got down to organising the others into some sort of medical party. "Mr. Weasel, would you go and find something which we could use as a stretcher and perhaps, Mr. Robin, you could go and find Barrie-Bear and tell him what has happened. He would be rather put out if he was not informed of such an important event. Mr. Robin flew off saying that he wouldn't be long, and Mr. Weasel hurried off to find the stretcher. "Now, Mrs. Rabbit, we had better go indoors to find some bandages and blankets".
+As soon as they were gone, Mrs Squirrel got down to organising the others into some sort of medical party. "Mr Weasel, would you go and find something we could use as a stretcher? And perhaps, Mr Robin, you could go and find Barrie-Bear and tell him what has happened. He would be rather put out if he was not informed of such an important event.”
 
-It did not take them long to find the things they required, and as they came out into the garden, they could see Mr. Robin and Barrie-Bear hurrying up the forest path. At least, Mr. Robin was hurrying, but Barrie-Bear had to keep stopping to put down the large bundle he was carrying. "Do hurry up", said Robin, "Mrs. Squirrel and Mrs. Rabbit will be anxious to get to young Rory". "I can't go any faster" puffed Barrie-Bear "and anyway, you haven't got anything to carry," he complained. "What is in that large bundle?" asked Robin. "Never you mind" answered Barrie-Bear indignantly, “but it is no good going on a rescue operation without the correct accoutrements". Robin had no idea what accoutrements were, and not wishing to show his ignorance, he merely said "Oh", and left it at that.
+Mr Robin flew off saying that he wouldn't be long, and Mr Weasel hurried to find the stretcher.
+
+"Now, Mrs Rabbit,” continued Mrs Squirrel, “we had better go indoors to find some bandages and blankets.”
+
+It did not take them long to find the things they required, and as they came out into the garden, they could see Mr Robin and Barrie-Bear hurrying up the forest path. Well, Mr Robin was hurrying, but Barrie-Bear had to keep stopping to put down the large bundle he was carrying.
+
+"Do hurry up,” said Robin, "Mrs Squirrel and Mrs Rabbit will be anxious to get to young Rory.”
+
+"I can't go any faster," puffed Barrie-Bear, "and anyway, you haven't got anything to carry," he complained.
+
+"What is in that large bundle?" asked Robin.
+
+"Never you mind," answered Barrie-Bear indignantly, “but it is no good going on a rescue operation without the correct accoutrements.”
+
+Robin had no idea what accoutrements were, and not wishing to show his ignorance, he merely said, "Oh,” and left it at that.
 
 Soon they arrived at Mrs. Rabbit's house and found Mrs. Rabbit and old Mrs. Squirrel ready to leave. "Can't we just have a short rest?" panted Barrie-Bear, "and a little liquid nourishment wouldn't go amiss" he added. Mrs. Rabbit poured Barrie- Bear a glass of iced lemon for which he was grateful, and while he was drinking it, Mr. Weasel appeared pulling a small toboggan behind him. "Not a very suitable time of year for Winter sports" muttered Barrie—Bear unaware of Mr. Weasel's inventiveness. Mr. Weasel thought the remark in rather bad taste, as he had used his alert brain to good effect. He explained to Barrie-Bear that he had fixed a wheel to the underside of the toboggan at one end so that Rory could be tied in position and pulled along to wherever it was decided to take him. Old Mrs. Squirrel thought it was a marvellous idea and said that it was high time they were on their way to the scene of the accident. The others agreed and together they started off through the forest looking and listening for Heigh.
 
