@@ -287,7 +287,13 @@ Barrie-Bear and Mr Beaver were sitting on the bank enjoying the warm penetrating
 
 "Well, if you are sure you don't mind," said Mr Weasel. "I would be most grateful for some temporary shelter, thank you."
 
-There was a gentle fluttering overhead and Mr. Robin appeared feeling very chirpy and said that his little nest was just as he had left it and added he thought everyone should live in trees thus escaping the horror of floods and the awful havoc they could create. "Suppose your tree was struck by lightning and fell down" said Barrie- Bear. Mr. Robin hadn't thought of that but said that it was most unlikely and that he was prepared to take that risk. "I think we should get back to Mrs. Rabbit" said Mr. Beaver, scenting that the atmosphere was becoming a trifle sticky.
+There was a gentle fluttering overhead and a very chirpy Mr Robin appeared. He said that his little nest was just as he had left it, and added that he thought everyone should live in trees, thus escaping the horror of floods and the awful havoc they could create.
+
+"Suppose your tree was struck by lightning and fell down," said Barrie-Bear.
+
+Mr Robin hadn't thought of that but said that it was most unlikely and that he was prepared to take that risk.
+
+"I think we should get back to Mrs Rabbit," said Mr Beaver, scenting that the atmosphere was becoming a trifle sticky.
 
 When they arrived they found that Rory had been put to bed with his leg in a splint and a lovely tea was waiting for them in front of a roaring log fire. Jason was still fast asleep, no doubt dreaming of his daring rescue operation.
 
