@@ -42,7 +42,21 @@ There was a forest of hands held high in the air, and all but one were counted.
 
 "Alright," said Heigh, only too pleased to be able to move at last. He did a couple of circles round Jason, and, as he did so, flicked him with his long tail.
 
-"Ow!" said Jason. "What was that?" "Wake up," said Heigh, "the Chairman is speaking to you." What a nuisance, thought Jason, I do object to being woken so rudely on a summer's afternoon – I wonder what Barrie-Bear wants me for. He yawned, raised his head and rose lazily to his feet. "I don't suppose," said Barrie-Bear, "that you have heard one word of what has been going on?" "No," replied Jason, who for all his faults always spoke the truth. Barrie wondered if it was worth saying everything all over again, and decided quickly that it wasn't. "Well, it's your own fault, if you don't agree with what has been decided," he said rather crossly. "Eh? What?" said Jason, suddenly realizing that he had missed something of importance. "Get your friend Heigh to tell you after the meeting. The vote has been carried unanimously," said Barrie-Bear, "and therefore we must now go away and think of the ways and means to put our plan into operation. The meeting is now adjourned."
+"Ow!" said Jason. "What was that?"
+
+"Wake up," said Heigh, "the Chairman is speaking to you."
+
+What a nuisance, thought Jason, I do object to being woken so rudely on a summer's afternoon – I wonder what Barrie-Bear wants me for. He yawned, raised his head and rose lazily to his feet.
+
+"I don't suppose," said Barrie-Bear, "that you have heard one word of what has been going on?"
+
+"No," replied Jason, who for all his faults always spoke the truth.
+
+Barrie wondered if it was worth saying everything all over again, and decided quickly that it wasn't. "Well, it's your own fault, if you don't agree with what has been decided," he said rather crossly.
+
+"Eh? What?" said Jason, suddenly realizing that he had missed something of importance.
+
+"Get your friend Heigh to tell you after the meeting. The vote has been carried unanimously," said Barrie-Bear, "and therefore we must now go away and think of the ways and means to put our plan into operation. The meeting is now adjourned."
 
 Mrs Rabbit, though she had spent the entire afternoon knitting for her forthcoming offspring, had nevertheless been listening attentively to the proceedings. Although she had no doubts about the idea in principle, she, like all good mothers, was thinking about how she and her family were all going to manage if, as would seem likely, they would have to move. As it was a hot day, and having done a lot of baking the previous afternoon, she thought that it would be a nice idea to have a tea party. She had a quick word with Mr Rabbit, who agreed, and together they went over to the home of Mr and Mrs Beaver and their three young sons, Rush, Rory and Tear. "Would you all like to come and have tea with us?" asked Mrs Rabbit. "Thank you," replied Mrs Beaver, "we would like that very much, and perhaps we can have a talk about the meeting this afternoon." Mr and Mrs Mouse were also pleased to come, as was old Mrs Squirrel, Mr Weasel and Mr Robin. The Water Rat family unfortunately had to return home as the twins, Jimmy and Timmy, felt rather tired, and Mrs Water Rat said she ought to put them to bed. Barrie-Bear declined the invitation, saying that he had a great many important things to attend to – among them no doubt his tummy – and was seen to wander off, with his head held high and looking pleased with the afternoon's activities.
 
