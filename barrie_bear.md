@@ -399,7 +399,11 @@ Promptly at eight o'clock the next morning Heigh pulled up outside Barrie-Bear's
 
 "It will suit our purpose very well," said Barrie-Bear, "and as we have a long way to go and a lot to do, I think we had better collect the others and get off." He and Mr Weasel climbed aboard and, with Barrie-Bear holding the reins, Heigh galloped off at such a speed that the two of them almost fell off.
 
-It took them a little while for them to get their 'sea legs' but by the time they arrived at Mrs. Rabbit's house, they were feeling considerably more confident. Mr. Beaver was all ready waiting and with a quick 'Hello and Good-bye' to the Rabbits, Heigh was off again and this time heading for the coast. After about two miles, Heigh settled down to a gentle trot and it was a lovely feeling jogging through the lovely countryside with the sun on their backs and a warm, though refreshing breeze, in their faces. Although Barrie-Bear had a hold on the reins, he had no idea how to use them, and Heigh had to stop occasionally to ask for directions.
+It took them a little while for them to get their 'sea legs' but by the time they arrived at Mrs Rabbit's house, they were feeling considerably more confident.
+
+Mr Beaver was already waiting, and with a quick 'hello and goodbye' to the Rabbits, Heigh was off again and this time heading for the coast.
+
+After about two miles, Heigh settled down into a gentle trot. It was a lovely feeling, jogging through the lovely countryside with the sun on their backs and a warm, though refreshing breeze, in their faces. Although Barrie-Bear had a hold on the reins, he had no idea how to use them, and Heigh had to stop occasionally to ask for directions.
 
 When they had gone about half the way, Barrie-Bear asked Heigh to stop. "We will have some refreshments now," he said, and lifting the basket which Mr. Weasel had prepared, he stepped down, closely followed by Mr. Beaver and Mr. Weasel. Mrs. Rabbit had kindly prepared some provisions and they sat down on the grass with a good supply of cake, honey and fruit. Heigh had also taken the precaution of bringing along a bag of oats and bran which he much appreciated. He was so hungry that he could have eaten the lot, but thought he had better leave some for the journey home.
 
