@@ -205,7 +205,11 @@ Mr Robin, who had been unusually silent for a very long time, suddenly bent his 
 
 They all listened. They heard a distinct splashing sound of someone or something making its way through the water. Barrie-Bear put his eye to the spy-hole and began to laugh – a sort of deep-throated chuckle which took everyone by surprise. He very seldom laughed – life was a serious business –  but he just couldn't help himself. What he saw was a very bedraggled Labrador in the shape of Jason slowly and laboriously plodding his way towards them through the floods. Jason couldn't bear to get wet, and now not only was he soaked through, he was absolutely filthy dirty as well. He couldn't have looked more miserable – his tail hung down and his eyes were just begging someone to help him.
 
-Without thinking, Barrie-Bear shouted, "Jason - came over here, we're in the tent." Jason's face lit up and his tail wagged until it nearly dropped off. He pushed his way through the tent opening, stood for a few seconds, and shook. "Jason!" they all cried together. But it was too late. Water flew everywhere, and the smell of Jason's wet fur made the overall atmosphere almost unbearable.
+Without thinking, Barrie-Bear shouted, "Jason! Come over here, we're in the tent."
+
+Jason's face lit up and his tail wagged until it nearly dropped off. He pushed his way through the tent opening, stood for a few seconds, and shook.
+
+"Jason!" they all cried together. But it was too late. Water flew everywhere, and the smell of Jason's wet fur made the atmosphere almost unbearable.
 
 The rain was easing slightly but the water was still rising, so Barrie-Bear decided that the construction of a raft must still proceed before they became marooned. He asked Mr. Weasel if he had worked out a plan for building the raft, and Mr. Weasel replied that he had and that he would want the support of everyone except the Ladies if it were to be ready in time. He outlined his plan to Mr. Beaver, who after all, was quite accustomed to building things, and Mr. Beaver thought that if they all pulled together, it would take no longer than an hour. Bearing in mind that they didn't have a single tool between them other than a small knife, a pair of scissors and some bandages which were all part of Barrie-Bear's accoutrements, it wasn't going to be easy, but quite simply, all they required was a floating platform large enough to accommodate the occupants of the tent.
 
