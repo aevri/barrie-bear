@@ -479,7 +479,17 @@ The tide was coming in. When they were about 50 yards from the shore, Barrie-Bea
 
 Barrie-Bear decided that they would split up – each going in a different direction – and meet again in an hour's time. Mr Weasel would take the western half, Mr Beaver the eastern and Barrie-Bear would venture northwards. Mr Weasel and Mr Beaver decided to follow the ridge around the coast as far as possible so that, as long as they kept the sea in view, they would be able to find their way back. Barrie-Bear said that he would mark the trees on his route for the same purpose. With a brief "Goodbye, see you later,” they started off on their various routes wondering who and what they might see. Barrie-Bear was also interested in finding out the berry situation on the island as he was feeling decidedly peckish.
 
-Any feelings of anxiety were quickly dispelled, as none of them either met or saw anybody, and the things they saw only filled them with an overwhelm- ing desire and a strong conviction that this is where they must settle. When they returned, they were so excited, they could barely speak. "It's beautiful," said Mr. Weasel, "and it doesn't look as though any- one else is living here." "I didn't see a soul either" said Mr. Beaver, "and I found an ideal place to build ourselves some new homes" he went on. "There are plenty of materials and a complete absence of civilisation. I think it is just the place we are looking for." It wasn't really necessary for Barrie-Bear to say that were was an abundance of food on the island, as one look at his tummy was enough to speak for itself. "I noticed several different sorts of berries," he said nonchalantly, "but I thought it wise to sample a few to make sure they are edible," he continued. "I certainly cast my vote in favour of emigrating here." They were unanimous, and with no further ado, returned to the boat, which was now floating on the incoming tide.
+Any feelings of anxiety were quickly dispelled, as none of them either met or saw anybody, and the things they did see only filled them with an overwhelming desire and a strong conviction that this was where they must settle.
+
+When they returned, they were so excited they could barely speak.
+
+"It's beautiful," said Mr Weasel, "and it doesn't look as though anyone else is living here."
+
+"I didn't see a soul either," said Mr Beaver, "and I found an ideal place to build ourselves some new homes. There are plenty of materials and a complete absence of civilisation. I think it is just the place we are looking for."
+
+It wasn't really necessary for Barrie-Bear to say that was an abundance of food on the island – his bulging tummy was evidence enough – though he did so anyway. "I noticed several different sorts of berries," he said nonchalantly, "but I thought it wise to sample a few to make sure they are edible. I certainly cast my vote in favour of emigrating here."
+
+They were unanimous, and with no further ado, they returned to the boat, which was now floating on the incoming tide.
 
 They scrambled aboard and cast off the rope from the tree stump. The wind had risen a little since they arrived, and it was with difficulty and indifferent seamanship, that they made their way back to the mainland. The sea was quite choppy and although he wouldn't admit it, Barrie-Bear felt quite sea-sick. Mr. Beaver who knew rather more about sailing than Barrie-Bear, could see that he had a touch of mal—de-mer, and suggested that he took over the tiller while Barrie-Bear had a rest. "That would be kind" said Barrie-Bear, who was somewhat relieved to hand over to a more experienced sailor. With Mr. Beaver at the helm, they put on considerable speed, as he was better able to steer the boat using the wind to full advantage.
 
