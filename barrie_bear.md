@@ -443,7 +443,13 @@ The mist had cleared, and he pointed towards a headland that until now had been 
 
 They scanned the beach below them. In a small inlet almost below where they were standing was not one boat but three.
 
-"There we are," said Barrie—Bear, "they will do very nicely." "But, we cannot just go and help ourselves" replied Mr. Beaver. "Of course not, but there must be someone around whom we could ask. Heigh, you will have to stay here and guard the telescope, while we go and make enquiries." Poor Heigh, he realised that he was too big to go to sea in one of those little dinghys, and with a sad expression on his face, he could do nothing but reluctantly agree.
+"There we are," said Barrie-Bear, "they will do very nicely."
+
+"But, we cannot just go and help ourselves," replied Mr Beaver.
+
+"Of course not, but there must be someone around whom we could ask,” said Barrie-Bear. "Heigh, you will have to stay here and guard the telescope, while we go and make enquiries."
+
+Poor Heigh, he realised that he was too big to go to sea in one of those little dinghies and, with a sad expression on his face, he could do nothing but reluctantly agree.
 
 The others made their way down the cliff face via a steep and very rough track. When they arrived on the beach, they went straight to the boats, which had obviously been in use very recently. They were still wet, and some fish were swimming round in a bucket which had been placed in the shade behind one of them. There was no-one in sight and Barrie-Bear, who was anxious to set sail, wondered to himself if the owner would mind very much if they borrowed one for an hour or two. "Would I mind?" he asked himself, imagining that he was the owner of the boats. "I don't think so", he thought as long as the person who borrowed it returned it undamaged, especially if there was a good reason for borrowing it. He turned it over in his mind for quite some time and after a lengthy private conversation with himself, he decided that they would take one of the boats, and risk having to explain his action to the owner later.
 
