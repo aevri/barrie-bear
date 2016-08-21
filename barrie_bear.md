@@ -97,9 +97,21 @@ Mrs Rabbit poured Barrie-Bear a glass of iced lemon for which he was grateful, a
 
 Mr Weasel thought the remark in rather bad taste, as he had used his alert brain to good effect. He explained to Barrie-Bear that he had fixed a wheel to the underside of the toboggan at one end so that Rory could be tied in position and pulled along to wherever it was decided to take him. Old Mrs Squirrel thought it was a marvellous idea and said that it was high time they were on their way to the scene of the accident. The others agreed and together they started off through the forest looking and listening for Heigh.
 
-Barrie—Bear started to fall behind the others owing to his bundle of 'accoutrements' and he was beginning to feel rather hot and bothered. He called to Mr. Weasel to wait for him, and Mr. Weasel who was quick to make suggestions, asked Barrie-Bear if he would like him to put his bundle on his toboggan. Barrie-Bear thought that was a first-class idea and wished he had thought of it himself. Mr. Weasel secured the bundle on to the make-shift stretcher and together they set off in pursuit of the others.
+Barrie-Bear started to fall behind the others, owing to his bundle of 'accoutrements', and he was beginning to feel rather hot and bothered. He called to Mr Weasel to wait for him, and Mr Weasel, who was quick to make suggestions, asked Barrie-Bear whether he would like to put his bundle on his toboggan. Barrie-Bear thought that was a first-class idea and wished he had thought of it himself. Mr Weasel secured the bundle on to the make-shift stretcher and together they set off in pursuit of the others.
 
-They didn't have far to go for when they reached a small clearing in the trees, they found that Heigh had returned to lead them to Rory. "A bit early or late for toboganning" said Heigh to Mr. Weasel when he saw the stretcher, "or is there some snow around which nobody has told me about?". "Of course not", replied Mr. Weasel, "Happy Christmas," "Happy Christmas?" said Heigh. "Oh never mind" - Mr. Weasel was getting impatient and could see no point in prolonging this stupid discussion. "How is Rory?" asked Mrs. Squirrel. "Well," said Heigh, "I suppose you could say that he is as well as can be expected in the circumstances, he seems to be in quite some pain, though, and I think we had better go to him if everyone is ready."
+They didn't have far to go, for when they reached a small clearing in the trees, they found that Heigh had returned to lead them to Rory.
+
+"A bit early or late for tobogganing," said Heigh to Mr Weasel when he saw the stretcher, "or is there some snow around that nobody has told me about?"
+
+"Of course not,” replied Mr Weasel. "Happy Christmas."
+
+"Happy Christmas?" said Heigh.
+
+"Oh never mind." Mr Weasel was getting impatient and could see no point in prolonging this stupid discussion.
+
+"How is Rory?" asked Mrs Squirrel.
+
+"Well," said Heigh, "I suppose you could say that he is as well as can be expected in the circumstances; he seems to be in quite some pain, though, and I think we had better go to him if everyone is ready."
 
 Everyone was ready and Heigh went on ahead with Barrie-Bear bringing up the rear, muttering to himself something about four-legged animals having an unfair advantage over those of us with only two. However, the journey was not too long and soon they were reunited with Mr. & Mrs. Beaver, Rush, Rory and Tear.
 
