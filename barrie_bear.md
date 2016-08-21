@@ -87,7 +87,15 @@ It did not take them long to find the things they required, and as they came out
 
 Robin had no idea what accoutrements were, and not wishing to show his ignorance, he merely said, "Oh,” and left it at that.
 
-Soon they arrived at Mrs. Rabbit's house and found Mrs. Rabbit and old Mrs. Squirrel ready to leave. "Can't we just have a short rest?" panted Barrie-Bear, "and a little liquid nourishment wouldn't go amiss" he added. Mrs. Rabbit poured Barrie- Bear a glass of iced lemon for which he was grateful, and while he was drinking it, Mr. Weasel appeared pulling a small toboggan behind him. "Not a very suitable time of year for Winter sports" muttered Barrie—Bear unaware of Mr. Weasel's inventiveness. Mr. Weasel thought the remark in rather bad taste, as he had used his alert brain to good effect. He explained to Barrie-Bear that he had fixed a wheel to the underside of the toboggan at one end so that Rory could be tied in position and pulled along to wherever it was decided to take him. Old Mrs. Squirrel thought it was a marvellous idea and said that it was high time they were on their way to the scene of the accident. The others agreed and together they started off through the forest looking and listening for Heigh.
+Soon they arrived at Mrs Rabbit's house and found Mrs Rabbit and old Mrs Squirrel ready to leave.
+
+"Can't we just have a short rest?" panted Barrie-Bear. "And a little liquid nourishment wouldn't go amiss," he added.
+
+Mrs Rabbit poured Barrie-Bear a glass of iced lemon for which he was grateful, and while he was drinking it, Mr Weasel appeared pulling a small toboggan behind him.
+
+"Not a very suitable time of year for Winter sports," muttered Barrie-Bear, unaware of Mr Weasel's inventiveness.
+
+Mr Weasel thought the remark in rather bad taste, as he had used his alert brain to good effect. He explained to Barrie-Bear that he had fixed a wheel to the underside of the toboggan at one end so that Rory could be tied in position and pulled along to wherever it was decided to take him. Old Mrs Squirrel thought it was a marvellous idea and said that it was high time they were on their way to the scene of the accident. The others agreed and together they started off through the forest looking and listening for Heigh.
 
 Barrie—Bear started to fall behind the others owing to his bundle of 'accoutrements' and he was beginning to feel rather hot and bothered. He called to Mr. Weasel to wait for him, and Mr. Weasel who was quick to make suggestions, asked Barrie-Bear if he would like him to put his bundle on his toboggan. Barrie-Bear thought that was a first-class idea and wished he had thought of it himself. Mr. Weasel secured the bundle on to the make-shift stretcher and together they set off in pursuit of the others.
 
