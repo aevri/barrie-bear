@@ -158,7 +158,7 @@ They were unable to tell how badly he was hurt, but they realised that they had 
 
 "Of course I will," said Mole. "I can tunnel my way out of the wood quicker than you can walk. I will soon get a message to Mr and Mrs Beaver." No sooner had he spoken than he was off across the glen and quite suddenly vanished down his hole. A slight rumbling sound and he was gone.
 
-It was soon afterwards that Mole was nearly frightened to death by what he thought was an earthquake, which of course later turned out to be Heigh who was clumping about overhead on his afternoon ramble. As soon as it was safe to surface, he poked his head up through the pine needles and was able to squeak loud enough to attract his attention.
+It was soon afterwards that Mole was nearly frightened to death by what he thought was an earthquake, which of course turned out to be Heigh, who was clumping about overhead on his afternoon ramble. As soon as it was safe to surface, Mole poked his head up through the pine needles and was able to squeak loud enough to attract Heigh’s attention.
 
 Chapter IV - The Journey that took them by Storm
 ------------------------------------------------
