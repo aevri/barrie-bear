@@ -245,7 +245,7 @@ Mrs Beaver, Mrs Rabbit and old Mrs Owl did not, however, share in the general en
 
 Mr Robin, who had been unusually silent for a very long time, suddenly bent his head over to one side and then the other. He had heard something. "What's that noise?" he said.
 
-They all listened. They heard a distinct splashing sound of someone or something making its way through the water. Barrie-Bear put his eye to the spy-hole and began to laugh – a sort of deep-throated chuckle which took everyone by surprise. He very seldom laughed – life was a serious business –  but he just couldn't help himself. What he saw was a very bedraggled Labrador in the shape of Jason slowly and laboriously plodding his way towards them through the floods. Jason couldn't bear to get wet, and now not only was he soaked through, he was absolutely filthy dirty as well. He couldn't have looked more miserable – his tail hung down and his eyes were just begging someone to help him.
+They all listened. They heard a distinct splashing sound of someone or something making its way through the water. Barrie-Bear put his eye to the spy-hole and began to laugh – a sort of deep-throated chuckle which took everyone by surprise. He very seldom laughed – life was a serious business – but he just couldn't help himself. What he saw was a very bedraggled Labrador in the shape of Jason slowly and laboriously plodding his way towards them through the floods. Jason couldn't bear to get wet, and now not only was he soaked through, he was absolutely filthy dirty as well. He couldn't have looked more miserable – his tail hung down and his eyes were just begging someone to help him.
 
 Without thinking, Barrie-Bear shouted, "Jason! Come over here, we're in the tent."
 
