@@ -1,0 +1,4 @@
+#! /bin/sh
+cd /data
+pandoc barrie_bear.md -o out.pdf
+cat out.pdf
