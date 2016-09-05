@@ -1,5 +1,8 @@
-Book I - Island of Dreams
-=========================
+---
+title: Island of Dreams
+geometry: a5paper
+documentclass: book
+---
 
 ![Johnny Bear](johnny-bear.jpg)
 
