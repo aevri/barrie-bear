@@ -6,8 +6,8 @@ documentclass: book
 
 ![Johnny Bear](johnny-bear.jpg)
 
-Chapter I
----------
+Untitled Chapter
+================
 
 *Bang, bang, bang* went Barrie-Bear's stick on the solid stump of an oak tree that had been recently felled. Barrie-Bear was a portly character, covered from head to foot in soft pitch-black fur with two round brown eyes sticking out like organ stops from his almost-square head. He had an aristocratic air about him, and he felt very much in charge, rather like a conductor of a large orchestra.
 
@@ -75,8 +75,8 @@ The Water Rat family unfortunately had to return home as the twins, Jimmy and Ti
 
 Barrie-Bear declined the invitation, saying that he had a great many important things to attend to - among them no doubt his tummy - and was seen to wander off, with his head held high and looking pleased with the afternoon's activities.
 
-Chapter II - The Tea Party
---------------------------
+The Tea Party
+=============
 
 Mr and Mrs Rabbit lived in a charming little house at the end of the forest with a very pretty garden that Mr Rabbit was particularly proud of. He grew only flowers, because he found that, when he decided to grow vegetables one year, they gradually disappeared and he put on considerably more weight. The house itself was quite small, with just two rooms downstairs and two up - plenty of room for Mr and Mrs Rabbit, but a little cramped when it came to entertaining friends. As it was a fine evening, however, Mrs Rabbit decided to serve tea on the lawn. She was very house-proud, and although she enjoyed the company of other people, she didn't relish the thought of her nice clean house being invaded by her not-so-clean friends - especially Mr Weasel, who was a chimney sweep by trade and who seriously believed that washing yourself too often brought bad luck. Everybody liked him, but he did not get too many invitations to other people's houses. Mr Robin, too, was not very fussy about wiping his feet when he came indoors and he had a habit of scattering crumbs all over the place when eating his food. Still, he was well liked. He was extremely clever, and when he was not delivering the mail, he could always be found in his workshop inventing some new gadget or other. He was quite mechanically minded, and didn't believe in having someone in to do a job which he could do just as well if not better himself.
 
@@ -160,8 +160,8 @@ They didn't have far to go, for when they reached a small clearing in the trees,
 
 Everyone was ready and Heigh went on ahead with Barrie-Bear bringing up the rear, muttering to himself something about four-legged animals having an unfair advantage over those of us with only two. However, the journey was not too long and soon they were reunited with Mr and Mrs Beaver, Rush, Rory and Tear.
 
-Chapter III - Happenings at Oak Tree Glen
------------------------------------------
+Happenings at Oak Tree Glen
+===========================
 
 "Thank goodness you've arrived," said Mrs Beaver, who was sitting on the ground with Rory's head lying comfortably in her lap. "Rory is in a great deal of pain."
 
@@ -205,8 +205,8 @@ They were unable to tell how badly he was hurt, but they realised that they had 
 
 It was soon afterwards that Mole was nearly frightened to death by what he thought was an earthquake, which of course turned out to be Heigh, who was clumping about overhead on his afternoon ramble. As soon as it was safe to surface, Mole poked his head up through the pine needles and was able to squeak loud enough to attract Heigh's attention.
 
-Chapter IV - The Journey That Took Them by Storm
-------------------------------------------------
+The Journey That Took Them by Storm
+===================================
 
 Rory was comfortably arranged on the stretcher and Mrs Owl thought it was likely that his leg was broken. Certainly he was badly bruised, which meant that he had to be moved very gently and all bumps and jolts be avoided at all costs. Barrie-Bear directed operations and thought that, as Mr Weasel had constructed the stretcher, he should be the one to pull it. Mr Weasel thought that it was a great responsibility, but he would do it to the best of his ability.
 
@@ -342,8 +342,8 @@ Mr Robin hadn't thought of that but said that it was most unlikely and that he w
 
 When they returned they found that Rory had been put to bed with his leg in a splint and a lovely tea was waiting for them in front of a roaring log fire. Jason was still fast asleep, no doubt dreaming of his daring rescue operation.
 
-Chapter V
----------
+Untitled Chapter
+================
 
 After an excellent tea and with a feeling of being rather fuller than was good for him, Barrie-Bear took Mr Beaver aside and told him that he thought that an extraordinary meeting should be held, if possible tomorrow, to discuss the present crisis. A plan of action was needed regarding the setting up of the new community.
 
@@ -431,8 +431,8 @@ Barrie-Bear was kind but firm. "I think," he said as nicely as he could, "that i
 
 His suggestion met with everyone's approval and Heigh was asked to find a trap and report with it to Barrie-Bear's house tomorrow morning at eight o'clock.
 
-Chapter VI - In Search of a Dream
----------------------------------
+In Search of a Dream
+====================
 
 Promptly at eight o'clock the next morning Heigh pulled up outside Barrie-Bear's house with full harness on and pulling a gaily painted trap behind him. Thanks to Mr Weasel, who was as good as an alarm clock first thing in the morning, both he and Barrie-Bear were ready and waiting. It was a really lovely morning with a clear blue sky and the sun was just rising over the tall tree-tops. It was undoubtedly going to be very hot and Mr Weasel had taken the trouble to prepare a few snacks for the journey.
 
